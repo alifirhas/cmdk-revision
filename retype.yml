@@ -1,0 +1,11 @@
+input: src
+output: docs
+url: # Add your website address here
+branding:
+  title: Custom Made Demon King
+  label: Revision
+# links:
+# - text: Getting Started
+#   link: https://retype.com/guides/getting-started/
+footer:
+  copyright: "Revision made by Fan"
