@@ -1,6 +1,6 @@
 # 491 - Power Contract
 
-Julia retrieved the origin of her soul, and Roy himself also successfully obtained the Eyes of the World and the Mobius Mark. His purpose of coming to this world this time has been achieved, and it can even be said to be overfulfilled.
+Julia retrieved the origin of her soul, and Roy himself also successfully obtained the Eyes of the World and the Mobius Mark. His purpose of coming to this world this time has been achieved, and it can even be said to be over fulfilled.
 
 Roy is not very familiar with the control of authority now, so he can't wait to return to the Abyss. For him, Sparda and Dante worries are completely unnecessary.
 
