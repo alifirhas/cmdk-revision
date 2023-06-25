@@ -1,6 +1,6 @@
-# Home
+# Custom Made Demon King - Revision
 
-Welcome to Custom Made Demon King - Revision!
+Welcome!
 
 Here, you will find revisions of names, sentences, and punctuation from the novel "Custom Made Demon King" that I have done. This work was created due to the need for continuity that was not accommodated by other translation websites. I hope that the revisions I have made can provide you with a better and more satisfying reading experience. Thank you for choosing this website as a trusted source for revisions. Enjoy your reading!
 
