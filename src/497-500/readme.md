@@ -1,1 +1,1 @@
-# Chapter 496 - 510
+# Chapter 496 - 510 - Mephisto's Invitation

@@ -28,7 +28,7 @@ In order to welcome the arrival of the veteran Demon King Mephisto, Frostfire Ci
 
 At the same time, they also asked Sareth to quickly call Roy back.
 
-"Well, not bad!" When he came to the gate of Frostfire City, Mephisto had a walking case in his hand. He looked very gentleman. He held the walking case with his hands and stopped and looked at Frostfire city, constantly nodding praise.
+"Well, not bad!" When he came to the gate of Frostfire City, Mephisto had a walking cane in his hand. He looked very gentleman. He held the walking cane with his hands and stopped and looked at Frostfire city, constantly nodding praise.
 
 "Your Majesty Mephisto, we welcome your arrival..." Julia and Benia knelt on one knee, and respectfully said to Mephisto with everyone "I wonder if you are here this time...?"
 
