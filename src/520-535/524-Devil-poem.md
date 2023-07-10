@@ -50,9 +50,9 @@ However, this is the case between angels and demons. There is no reason for host
 
 So since Auriel was discovered, Roy couldn't let her go because of admiration... it's just impossible.
 
-Roy is not very interested in the eternal battle between angels and demons that takes place in this world. He doesn't want to be trapped in this world and repeatedly tug-of-war with angels like Diablo and the others. But in order to end the eternal battle, one side must win. As a demon, Roy, of course, can't turn over Mephisto and the others. In that case, he will probably not be able to get along in the abyss in the future - so he only Can play the idea of ​​high-level heaven.
+Roy is not very interested in the eternal battle between angels and demons that takes place in this world. He doesn't want to be trapped in this world and repeatedly tug-of-war with angels like Diablo and the others. But in order to end the eternal battle, one side must win. As a demon, Roy, of course, can't turn over Mephisto and the others. In that case, he will probably not be able to get along in the abyss in the future - so he only Can play the idea of High Heaven.
 
-Attacking the high-level heaven is part of his plan. Now there are only three of the four archangels left. Of course, Roy can't let Auriel go back to add obstacles to him.
+Attacking the High Heaven is part of his plan. Now there are only three of the four archangels left. Of course, Roy can't let Auriel go back to add obstacles to him.
 
 Roy originally wanted to fly towards Auriel's location, but then found that he couldn't fly, flapping his wings was useless, there was no air and no space in the void, flying and flashing in the conventional sense were here is useless!
 
@@ -90,7 +90,7 @@ Auriel was originally fighting against the erosion of the void, while being dist
 
 "The void will slowly erode you a little bit, and eventually devour you, and the power of the Holy Light you are proud of can no longer protect you."
 
-"Your light will eventually go out, your body will dissipate, and your soul will not be able to return to the high heaven. Either you disappear completely, or you will be taken by the void, and then create an ugly void creature with your soul."
+"Your light will eventually go out, your body will dissipate, and your soul will not be able to return to the High Heaven. Either you disappear completely, or you will be taken by the void, and then create an ugly void creature with your soul."
 
 "No one can save you. The hope you hold on is empty, and miracles will not happen. When your strength is worn out bit by bit, you will also sink bit by bit."
 

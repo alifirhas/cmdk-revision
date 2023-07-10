@@ -4,9 +4,9 @@ The Crystal Arch, as its name suggests, is a silver-white tower that stands tall
 
 In Auriel's Garden of Hope, every time the angels sing the sacred song aloud here, the harmonious note resonates with this green crystal, and at the same time, the angels hidden in the crystal resonate soul will be reborn.
 
-This was originally the most sacred and most beautiful scene in the high-level heaven, but it is a pity that Auriel can never see it again.
+This was originally the most sacred and most beautiful scene in the High Heaven, but it is a pity that Auriel can never see it again.
 
-Angle of Hope - Auriel is trapped in the void, the high-level heaven has been captured by the demon army, and there are smoke and ruins everywhere. The corruption of the dark power is spreading in the high-level heaven and mottled black unclean things can be seen everywhere. The singing had long since lost its harmony and could no longer resonate with the crystal.
+Angle of Hope - Auriel is trapped in the void, the High Heaven has been captured by the demon army, and there are smoke and ruins everywhere. The corruption of the dark power is spreading in the High Heaven and mottled black unclean things can be seen everywhere. The singing had long since lost its harmony and could no longer resonate with the crystal.
 
 Mephisto, Diablo, and Baal at the foot of the silver tower, entangled Imperius and Itherael. Roy was able to easily enter the silver tower and he shuttled through the tower. In the maze-like path, looking for the road and portal to the upper level.
 
@@ -34,7 +34,7 @@ As Roy continued to move forward, the voice began to echo again, and this time i
 
 "Stop your steps..."
 
-"Anu's Crest cannot be destroyed..."
+"God Anu's Crest cannot be destroyed..."
 
 "It's too late to go back now..."
 
@@ -50,7 +50,7 @@ When Roy entered the top of the silver tower all the way, and was about to appro
 
 "Osiris, King of Demons, you are making a wrong choice!"
 
-"Anu's Crest is the cornerstone of the existence of the higher heaven, and it cannot be broken!"
+"God Anu's Crest is the cornerstone of the existence of the higher heaven, and it cannot be broken!"
 
 "If you really do this, the balance that has been maintained for thousands of years will cease to exist!"
 
@@ -64,13 +64,13 @@ The murmur was silent for a while, and then reappeared, sighing and admitting, "
 
 Trag'Oul's voice came, his tone recovered, and he said to Roy "To be honest, I don't want to appear in front of any angels or demons, but Osiris, the king of demons, what you have done threatens the whole world. The balance of the world, I have to find a way to stop you!"
 
-"You said that to Diablo as well?" Roy asked "If I remember correctly, Diablo also broke into the Crystal Dome last time, trying to corrupt Anu's Crest, that At that time, did you also warn him?"
+"You said that to Diablo as well?" Roy asked "If I remember correctly, Diablo also broke into the Crystal Dome last time, trying to corrupt God Anu's Crest, that At that time, did you also warn him?"
 
 "...No, no!" Trag'Oul replied.
 
 "Oh? Then why did you appear this time?" Roy asked with great interest.
 
-Trag'Oul was silent for a while, and finally said "Because at that time, Tyrael led the Nephalems into the high-level heaven, so I know that Diablo will inevitably fail..."
+Trag'Oul was silent for a while, and finally said "Because at that time, Tyrael led the Nephalems into the High Heaven, so I know that Diablo will inevitably fail..."
 
 Roy reacted "Necromancer? Among those Nephalems, there are necromancers? So you can know the battle situation through them?"
 
@@ -82,9 +82,9 @@ Trag'Oul didn't mind Roy's mockery, but said "I am th guardian of Sanctuary, so 
 
 "Okay, I accept this explanation!" Roy spread his hands and said "Now the question comes back... You know, I am a demon, borrowing Mephisto's words 'I am an elf who will never deny', What does the way of balance you want to protect have anything to do with me? Why should I listen to you?"
 
-"Because of the loss of the high-level heaven, the demons of the flaming **** will ravage the entire Sanctuary. As the guardian, I must prevent this from happening!" Trag'Oul's tone was stern, saying "The dominance of the devil, for the For me as a guardian, it's not a good thing."
+"Because of the loss of the High Heaven, the demons of the flaming hell will ravage the entire Sanctuary. As the guardian, I must prevent this from happening!" Trag'Oul's tone was stern, saying "The dominance of the devil, for the For me as a guardian, it's not a good thing."
 
-Roy shook his head "Wrong, if you are really the guardian of the Sanctuary, you should stand up to resist us, demons, not just here and trying to stop me from destroying the high heaven with your word! In the same way, if the flame **** is destroyed, You should stand up to the higher heavens, not prevent the destruction of the flaming hell!"
+Roy shook his head "Wrong, if you are really the guardian of the Sanctuary, you should stand up to resist us, demons, not just here and trying to stop me from destroying the High Heaven with your word! In the same way, if the flame hell is destroyed, You should stand up to the higher heavens, not prevent the destruction of the flaming hell!"
 
 He spread his hands and concluded "To put it bluntly, if you want to be this guardian, then stand up and fight against angels and demons at the same time. That's what you should do! But have you done that?"
 
@@ -92,7 +92,7 @@ Faced with Roy's questioning, Trag'Oul didn't speak, and he didn't know whether 
 
 "You are a fake guardian! Your so-called balance is that you want to see angels and demons continue to fight for a long time, while you are hiding in the back of the world and continue to grow vulgarly, right?" Roy grinned and exposed Trag'Oul's true thoughts "Whether it's an angel destroying Sanctuary, or a demon destroying Sanctuary, it's a disaster for you! Because your power is not yet fully mature, so You can only use this method to fight for space for yourself!"
 
-"...It seems that you demons have studied me a lot..." Trag'Oul was silent for a while, and said "I actually know that when my existence is exposed to the world, it will always arouse the vigilance of angels and demons... These situation told by Mephisto to you, right? The seven devil kings of **** are really cunning guys. They pretended not to care about my existence, but they studied me thoroughly. Demon King Osiris, it seems that you You should understand what kind of existence I am, right?"
+"...It seems that you demons have studied me a lot..." Trag'Oul was silent for a while, and said "I actually know that when my existence is exposed to the world, it will always arouse the vigilance of angels and demons... These situation told by Mephisto to you, right? The seven devil kings of hell are really cunning guys. They pretended not to care about my existence, but they studied me thoroughly. Demon King Osiris, it seems that you You should understand what kind of existence I am, right?"
 
 "The star soul titan living in the world of Sanctuary?" Roy asked.
 

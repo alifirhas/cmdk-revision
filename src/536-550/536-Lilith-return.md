@@ -1,8 +1,6 @@
 # 536 - Lilith's Return
 
-**boom—**
-
-The flash of lightning flashed through the thick black clouds, bringing a huge and dull roar of thunder, which continued to spread in the clouds, rolling away gradually.
+**boom—** as the flash of lightning flashed through the thick black clouds, bringing a huge and dull roar of thunder, which continued to spread in the clouds, rolling away gradually.
 
 The people startled by the thunder and straightened up from their beds in horror. They wiped the cold sweat on their foreheads, groped their way up, and lit the oil lamps. Witnessing the light of lightning that flashed from time to time. They put their hands on the oil lamps, stopping the gust of wind blow out the flickering lights, they went to the window to close the creaking window.
 
@@ -52,17 +50,17 @@ The figure sitting among the bricks in the church was none other than the Crusad
 
 After seeing his mentor, the Crusader apprentice said in a very helpless tone "Sorry, mentor, there is still no news from Tyrael... And the most troublesome thing is that recently, the Holy Spirit and Holy Light power in my body seems to be fading..."
 
-"It's not just you, this is happening to me too!" His mentor replied worriedly "I already contacted other Crusader soldiers and they had the same situation. Although the power of the Holy Light did not disappear, it did attenuate. ... It seems that there is a huge change in the high-level heaven!"
+"It's not just you, this is happening to me too!" His mentor replied worriedly "I already contacted other Crusader soldiers and they had the same situation. Although the power of the Holy Light did not disappear, it did attenuate. ... It seems that there is a huge change in the High Heaven!"
 
-Hearing this, the apprentice was a little stunned and asked, "Teacher, we believe in the Holy Light, what does this have to do with high heaven?"
+Hearing this, the apprentice was a little stunned and asked, "Teacher, we believe in the Holy Light, what does this have to do with High Heaven?"
 
 "Indeed, the holy light is merely a power, independent of the angels themselves," the instructor responded, contemplating the apprentice's words. "However, it cannot be denied that the presence of the high heavens enhances the potency of the holy light within the world of Sanctuary. This connection may be linked to the Crystal Arch. Currently, our world faces no immediate threat, but the decline in the power of the holy light suggests an issue with the Crystal Arch itself." The instructor paused, his gaze filled with concern. "If we wish to restore the strength of the holy light and protect our world from darkness, we must investigate the state of the Crystal Arch and uncover the source of its weakening power."
 
-"In addition, some time ago, the angels frequently attacked the world of Sanctuary, and suddenly they all withdrew all together..." The tutor pondered "Maybe... the reason is, the high-level heaven has been invaded by demons again! "
+"In addition, some time ago, the angels frequently attacked the world of Sanctuary, and suddenly they all withdrew all together..." The tutor pondered "Maybe... the reason is, the High Heaven has been invaded by demons again! "
 
-"Then don't we want to support the high-level heaven as soon as possible?" The apprentice said with wide eyes "Although it is very hateful for those arrogant angels to take action against us, but the high-level heaven must be protected!"
+"Then don't we want to support the High Heaven as soon as possible?" The apprentice said with wide eyes "Although it is very hateful for those arrogant angels to take action against us, but the High Heaven must be protected!"
 
-"Why? We still don't know the situation yet" The mentor sighed "Now the entire Crusaders are scattered all over the place, looking for Tyrael's traces. It is said that he reappeared once a while ago and the Angel Legion who attacked Sanctuary at that time. There was a brief exchange, but then he seems to have gone to the high-level heaven again, so far there is no news, we can't contact them at all, and the new Horadrim Church is now in chaos..."
+"Why? We still don't know the situation yet" The mentor sighed "Now the entire Crusaders are scattered all over the place, looking for Tyrael's traces. It is said that he reappeared once a while ago and the Angel Legion who attacked Sanctuary at that time. There was a brief exchange, but then he seems to have gone to the High Heaven again, so far there is no news, we can't contact them at all, and the new Horadrim Church is now in chaos..."
 
 "If all else fails, resorting to a direct approach and forcibly entering the high heavens might be our only option," the apprentice suggested, determined to find a solution. "We could seek assistance from the mage tribe. They should possess the knowledge to open a portal to the high heavens."
 
@@ -70,39 +68,39 @@ The Crusader Instructor scoffed disdainfully, shaking his head. "That group of m
 
 The apprentice fell silent, realizing the challenge they faced in seeking the mages' cooperation. It seemed that their journey to restore the power of the holy light would require finding alternative allies within Sanctuary.
 
-"But the problem is, if there is a disruption in the high-level heaven, it could potentially lead to a demonic invasion of Sanctuary!" the apprentice exclaimed, his voice filled with anxiety. "Even if the mages hold animosity towards angels, they must recognize the threat the demons pose to their own existence. We need to find a way to appeal to their self-interest and show them that helping us is the only way to safeguard their own world. Can't we leverage this to convince them?"
+"But the problem is, if there is a disruption in the High Heaven, it could potentially lead to a demonic invasion of Sanctuary!" the apprentice exclaimed, his voice filled with anxiety. "Even if the mages hold animosity towards angels, they must recognize the threat the demons pose to their own existence. We need to find a way to appeal to their self-interest and show them that helping us is the only way to safeguard their own world. Can't we leverage this to convince them?"
 
-"Well... that is a way!" The Crusader Instructor pondered for a while, and said "Well, let's try it, but don't hold out too much hope, we still have to find a way to find Tyrael... There is also that Demon King Osiris, I suspect that this high-level heaven thing has something to do with him!"
+"Well... that is a way!" The Crusader Instructor pondered for a while, and said "Well, let's try it, but don't hold out too much hope, we still have to find a way to find Tyrael... There is also that Demon King Osiris, I suspect that this High Heaven thing has something to do with him!"
 
 "People from Xiansai Island found the palace of the Demon King Osiris in the depths of the mountains. He seemed to be there for a while, but now he's gone..." The apprentice replied, "This is very disturbing..."
 
 A mentor and an apprentice separated again after a brief exchange. They continued to inquire about news around the world, and other Crusader fighters were the same as them.
 
-It can be said that the Crusader organization is the organization that pays the most attention to the high-level heaven. As for other mage tribes, barbarians, and witches are not very concerned about it. After the brief conflict between the high-level heaven and the Sanctuary, many Nephalems felt that it was better not to interfere in the mortal world, whether it was an angel or a demon!
+It can be said that the Crusader organization is the organization that pays the most attention to the High Heaven. As for other mage tribes, barbarians, and witches are not very concerned about it. After the brief conflict between the High Heaven and the Sanctuary, many Nephalems felt that it was better not to interfere in the mortal world, whether it was an angel or a demon!
 
 The Crusaders, who traveled extensively across the world, did not receive assistance from the mage tribe. However, they ultimately received news from the priest of Rathma, who happened to be a necromancer.
 
 The necromancers give the Crusaders the grave news that the High Heavens had fallen. Osiris, the King of Despair, led an army of demons to defeat the angelic forces and lay waste to the Crystal Arch. Within the ranks of the four archangels, the righteous Archangel Tyrael was once again imprisoned. The Archangel Auriel, the beacon of hope, was reported missing, while the Archangel of Destiny, Itherael, perished in battle. Consumed by anger, the Archangel of Courage, Imperius, succumbed to its wrath. Faced with the dire circumstances, Imperius opted for self-destruction, unwilling to be complicit in the downfall.
 
-That is to say, after this battle, the high-level heaven no longer exists, and it was already two weeks ago. The demon army has already cleaned up the battlefield and retreated to the hell of flames.
+That is to say, after this battle, the High Heaven no longer exists, and it was already two weeks ago. The demon army has already cleaned up the battlefield and retreated to the hell of flames.
 
-Such a news was like a bolt from the blue. It shocked everyone in the entire Crusaders organization. Although they also felt that something had happened in the high-level heaven, they did not expect it to be so serious. They didn't expect the war is already over.
+Such a news was like a bolt from the blue. It shocked everyone in the entire Crusaders organization. Although they also felt that something had happened in the High Heaven, they did not expect it to be so serious. They didn't expect the war is already over.
 
 In the aftermath of the shock, the Crusaders swiftly disseminated the news to other organizations, causing ripples throughout the entire Sanctuary world. Even the mages, setting aside their prejudices temporarily, endeavored to collaborate and establish a path towards higher realms. They sought to open a portal to access the High Heaven and witness the state there firsthand.
 
 Consequently, what greeted their eyes was nothing but the aftermath of devastation of High Heaven that was once magnificent and glorious, now shrouded in darkness, devoid of the radiant light of the Holy Light. The land lay barren and desolate, presenting a scene of utter desolation.
 
-This time, everyone was overwhelmed. After realizing it, they look back and find that although angels are also hateful, they are the first target of the devil's attack. Before the high heaven fell, they has resisted most of the demon invasions, and the impact on Sanctuary is only one-sided.
+This time, everyone was overwhelmed. After realizing it, they look back and find that although angels are also hateful, they are the first target of the devil's attack. Before the High Heaven fell, they has resisted most of the demon invasions, and the impact on Sanctuary is only one-sided.
 
-Now that the high-level heaven is gone and the shields are gone, doesn't it mean that the Sanctuary will be the only place to resist the devil in the future?
+Now that the High Heaven is gone and the shields are gone, doesn't it mean that the Sanctuary will be the only place to resist the devil in the future?
 
 Just when the leaders of various organizations held a meeting and debated what to do next, no one thought that the first to act was the necromancers of the Rathma sect.
 
-The reason why the news of the destruction of the High Heaven was first reported is because the head of the Rathma sect, Trag'Oul, participated in the battle of the high-level heaven, although he failed to stop Roy and was unable to save the high-level heaven. The fate of falling, but after returning, he immediately thought about what to do next.
+The reason why the news of the destruction of the High Heaven was first reported is because the head of the Rathma sect, Trag'Oul, participated in the battle of the High Heaven, although he failed to stop Roy and was unable to save the High Heaven. The fate of falling, but after returning, he immediately thought about what to do next.
 
 For Trag'Oul, his action has already provoked the Demon King Osiris. He is very worried that the demon will target to his star-soul titan, so he must have a strength in order to fight against the demon.
 
-So he thought of the Nephalems in Sanctuary. These Nephalems have powerful powers that are not inferior to angels and demons. Especially after the destruction of the World Stone, this power is still further strengthened. If They can unite against the flames of hell, maybe they can take on the responsibilities of the original high-level heaven.
+So he thought of the Nephalems in Sanctuary. These Nephalems have powerful powers that are not inferior to angels and demons. Especially after the destruction of the World Stone, this power is still further strengthened. If They can unite against the flames of hell, maybe they can take on the responsibilities of the original High Heaven.
 
 But the premise is that they can really be united... Trag'Oul has always observed the world of mortals. He has witnessed the war between mortals for thousands of years. He still understands human nature quite well and whether they can unite. Trag'Oul had always had this big questions.
 
@@ -120,7 +118,7 @@ After the war, Mendeln accepted Trag'Oul's teachings, founded the Rathma Sect, a
 
 However, Trag'Oul didn't know that after learning that the High Heaven had fallen, Mendeln's own thoughts were different from Trag'Oul.
 
-Although he believes in Trag'Oul's teachings, he does not believe in Trag'Oul himself. During the years of contact with Trag'Oul, Mendeln is very clear that Trag'Oul is only protecting himself. Now that the high-level heaven is gone, he is eager to push mortals out for him to resist the prying eyes of demons!
+Although he believes in Trag'Oul's teachings, he does not believe in Trag'Oul himself. During the years of contact with Trag'Oul, Mendeln is very clear that Trag'Oul is only protecting himself. Now that the High Heaven is gone, he is eager to push mortals out for him to resist the prying eyes of demons!
 
 More than that, in addition to the original Seven Demon Kings, Osiris, the King of Despair, is now in the Hell of Flames. Mendeln also realizes the power of hel today. He believes that relying on the strength of the mortals in the Sanctuary, he's afraid unable to stop the attack of Hell of Flames.
 

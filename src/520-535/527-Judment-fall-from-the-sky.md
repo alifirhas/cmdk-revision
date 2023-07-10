@@ -4,9 +4,9 @@
 
 A brief exchange in the sky made Tyrael fully aware of the difference between Roy and several other demon kings. His intuition told Tyrael that what Roy said might indeed be true.
 
-Osiris has no interest in Sanctuary, which is a good thing. Tyrael is relieved, but the other party's high threat to the high heaven cannot be ignored. In the light, the clothes of Tyrael's mortal body gradually faded away, replaced by golden boots and armor full of divine breath.
+Osiris has no interest in Sanctuary, which is a good thing. Tyrael is relieved, but the other party's high threat to the High Heaven cannot be ignored. In the light, the clothes of Tyrael's mortal body gradually faded away, replaced by golden boots and armor full of divine breath.
 
-At this moment, Tyrael regained his original appearance as an archangel, and the hood of his head became dark and hollow. He held the holy sword and pointed at Roy, and his voice sounded from all directions, saying "Demon King Osiris, No matter what your intentions are, you must pass me! I, fight for the high heaven!"
+At this moment, Tyrael regained his original appearance as an archangel, and the hood of his head became dark and hollow. He held the holy sword and pointed at Roy, and his voice sounded from all directions, saying "Demon King Osiris, No matter what your intentions are, you must pass me! I, fight for the High Heaven!"
 
 "Of course, I don't mind beating you again!" Roy also showed a wicked smile.
 
@@ -36,11 +36,11 @@ Just when the tip of his claw was about to touch Tyrael's back, a golden crystal
 
 That's right, what pierced Tyrael's back was the Bright Soul Stone, and it was the second one!
 
-"Why is it not possible?" Roy lowered his head to Tyrael while inspiring the power in the crystal and began to absorb Tyrael's soul "Who told you that I made a bright soul stone? Let me tell you, There are several archangels in the high heaven, and I actually made a few!"
+"Why is it not possible?" Roy lowered his head to Tyrael while inspiring the power in the crystal and began to absorb Tyrael's soul "Who told you that I made a bright soul stone? Let me tell you, There are several archangels in the High Heaven, and I actually made a few!"
 
 It can only be said that traditional thinking kills people. Tyrael knows the dark soul stone very well, because there is only one fragment of the world stone, so only one dark soul stone can be made. When he discovered that the light soul stone was actually could imprison angel souls like the dark soul stone, he subconsciously thought that there was only one bright soul stone.
 
-The soul stone that imprisoned him before has been temporarily placed in the high-level heaven by them, so when he fought with Roy, he was not prepared for Roy's move at all.
+The soul stone that imprisoned him before has been temporarily placed in the High Heaven by them, so when he fought with Roy, he was not prepared for Roy's move at all.
 
 With the unwilling roar, Tyrael's soul turned into countless golden rays of light, which was inhaled by the crystal, and his angel body also turned into rays of light and dissipated.
 
@@ -76,9 +76,9 @@ Imperius didn't notice his change, but Roy noticed it. When he was fighting Impe
 
 "Interesting..." Roy smiled and thought to himself "High Heaven has fallen to a Malthael, is it Imperius's turn now? Does he still want to get ahead of Auriel?"
 
-While Roy continued to fight with Imperius, he observed carefully. He found that Imperius was indeed the first person in the high-level heaven. Although there were signs of degeneration, the power of the Holy Light was still flowing continuously. His body overflowed and it seemed that he was still a little too hot to complete the last step.
+While Roy continued to fight with Imperius, he observed carefully. He found that Imperius was indeed the first person in the High Heaven. Although there were signs of degeneration, the power of the Holy Light was still flowing continuously. His body overflowed and it seemed that he was still a little too hot to complete the last step.
 
-"Forget it, let me witness the fall of the high-level heaven!" Roy thought so, slammed into Imperius and knocked him out.
+"Forget it, let me witness the fall of the High Heaven!" Roy thought so, slammed into Imperius and knocked him out.
 
 After that, Roy returned to the state of chaotic body again, his body began to be filled with mist again, and his height was also rising.
 
@@ -102,6 +102,6 @@ It was a huge meteorite with a diameter of over two kilometers!
 
 With a flaming flame, it dragged a long tail like a comet, and it fell straight down from the sky. In the desperate eyes of the angels and the fearful eyes of the demons, it flew towards the location of the Diamond Gate. go!
 
-The entire high-level heaven was resounding with the huge roar caused by the friction between the meteorite and the air, and in this roar, the icy voice of Demon King Osiris.
+The entire High Heaven was resounding with the huge roar caused by the friction between the meteorite and the air, and in this roar, the icy voice of Demon King Osiris.
 
 "Doomsday... Judgment!"

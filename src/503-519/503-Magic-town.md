@@ -44,9 +44,9 @@ Everyone agreed with her guess, so the next second, they saw the big man named K
 
 With a loud bang, the originally collapsed church was completely lifted off the roof this time, exposing the inside.
 
-However, it is strange that after smashing the roof of the church, the witch hunters did not find anything abnormal inside, only a door of **** shining with blood-red light was slowly closing.
+However, it is strange that after smashing the roof of the church, the witch hunters did not find anything abnormal inside, only a door of hell shining with blood-red light was slowly closing.
 
-"Is it over?" Looking at the **** portal that was closing, the demon hunters were a little puzzled, and felt it was too easy to solve.
+"Is it over?" Looking at the hell portal that was closing, the demon hunters were a little puzzled, and felt it was too easy to solve.
 
 Not so... right! What about the remnants of the Zakarum church in the intelligence? Why didn't you see them?
 
@@ -56,7 +56,7 @@ A group of demon hunters searched around in the church like this. After their ca
 
 It was a secret door close to the back of the bookcase. When the demon hunters found the mechanism and twisted it, the secret door was opened with a click, revealing a narrow passage that can only be passed by one person. Looking at the direction of the passage, it seems that it leads to the underground of the church.
 
-Taking out the torch, the demon hunters were vigilant and began to enter the passage one after another. They had already seen that the gate of **** outside might be just a warning method. Those remnants of the Zakarum church should be hiding in the ground. In the space, if you don't hurry, they might run away.
+Taking out the torch, the demon hunters were vigilant and began to enter the passage one after another. They had already seen that the gate of hell outside might be just a warning method. Those remnants of the Zakarum church should be hiding in the ground. In the space, if you don't hurry, they might run away.
 
 The descending stairs were unexpectedly long. After walking for nearly twenty minutes, they faintly saw the light that appeared in front of him, and didn't know where it had gone underground.
 

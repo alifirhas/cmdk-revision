@@ -24,11 +24,11 @@ Roy lowered his head, looked at the high priest below who was only at his knees,
 
 Roy nodded, everything was almost as he expected. Although it was unclear whether Mephisto was a clone or a body in this world, but it's true that he was trapped.
 
-In this world, there is not only Mephisto as a demon king, but also Diablo and his group of demon kings. The power of demons in this world can be said to be unprecedentedly powerful and it is not Roy's turn. Such other abyss demon kings came here to intervene, but it is ridiculous that the seven demon kings in this world were all stunned by the angels of the high heaven and the Nephalems, so that they could not take care of themselves. If Roy remembered correctly, the seven The Demon King's soul has been sealed several times...
+In this world, there is not only Mephisto as a demon king, but also Diablo and his group of demon kings. The power of demons in this world can be said to be unprecedentedly powerful and it is not Roy's turn. Such other abyss demon kings came here to intervene, but it is ridiculous that the seven demon kings in this world were all stunned by the angels of the High Heaven and the Nephalems, so that they could not take care of themselves. If Roy remembered correctly, the seven The Demon King's soul has been sealed several times...
 
 This kind of situation of repeated defeats and repeated defeats can no longer be described as a head iron. Roy does not know what purpose Mephisto and the others are so obsessed with in this world, but from the side, It can also prove how powerful the world's resistance to demons is!
 
-Roy has just arrived in this world and doesn't know anything about the situation here, but he also knows that this is not a place where he can do whatever he wants with the power of the devil. He raised his head and looked at the distant sky. Looking at the mountains in the distance around him again, he knew that the vision when he descended would soon attract high-level angels and nephalems.
+Roy has just arrived in this world and doesn't know anything about the situation here, but he also knows that this is not a place where he can do whatever he wants with the power of the devil. He raised his head and looked at the distant sky. Looking at the mountains in the distance around him again, he knew that the vision when he descended would soon attract upper rank angels and nephalems.
 
 So, Roy stretched out his hand, and then  countless eyeball monsters appear with small wings flying out from the palm of his demon claw. These tens of thousands of demon eyes for reconnaissance were flapping their small wings. It flew in all directions, and soon entered a state of invisibility and disappeared.
 

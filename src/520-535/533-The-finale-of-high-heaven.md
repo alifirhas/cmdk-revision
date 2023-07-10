@@ -1,4 +1,4 @@
-# 533: The finale of the high heaven
+# 533: The finale of the High Heaven
 
 In fact, the moment Roy stop again, the phantom of Trag'Oul's Dragon Constellation suddenly flickered.
 
@@ -40,31 +40,31 @@ Hmm... Actually thinking about it, it's not bad to be able to capture a Star Sou
 
 Of course, this is the next step. Trag'Oul is now estimated to be hiding again. In order to find him, Roy has to go back to the world of Sanctuary, and then he will have to snatch Trag'Oul's soul. Roy put some protection, otherwise it will be troublesome to be pulled into a dream again...
 
-The most urgent task at the moment is to destroy the high heaven and Roy don't know how long it have been delayed. What happened to Mephisto and Imperius under the silver tower.
+The most urgent task at the moment is to destroy the High Heaven and Roy don't know how long it have been delayed. What happened to Mephisto and Imperius under the silver tower.
 
-Taking steps again, Roy continued to move up. It took a while for him to finally arrive at the location of Anu's Crest Crystal, the so-called Crystal Dome Hall.
+Taking steps again, Roy continued to move up. It took a while for him to finally arrive at the location of God Anu's Crest Crystal, the so-called Crystal Dome Hall.
 
-Given the importance of Anu's Crest, it is naturally impossible for the crystal dome to have no protection at all. This hall has a gate that is closed by a powerful divine force, and there are the only remaining four elite high-level angels guarding them. They have been guarding outside the gate, even if the entire high-level heaven is in a turbulent fight, they have not gone out to participate in the war.
+Given the importance of God Anu's Crest, it is naturally impossible for the crystal dome to have no protection at all. This hall has a gate that is closed by a powerful divine force, and there are the only remaining four elite upper rank angels guarding them. They have been guarding outside the gate, even if the entire High Heaven is in a turbulent fight, they have not gone out to participate in the war.
 
-The reason for this is that in the previous attack, Diablo managed to breach the crystal dome using an unknown method, catching them off guard. Imperius and the others were unaware of his presence until Diablo had already begun tampering with Anu's Crest Crystal, at which point they realized the gravity of the situation.
+The reason for this is that in the previous attack, Diablo managed to breach the crystal dome using an unknown method, catching them off guard. Imperius and the others were unaware of his presence until Diablo had already begun tampering with God Anu's Crest Crystal, at which point they realized the gravity of the situation.
 
-However, it was already too late at that point. The souls of the angels in all of High Heaven were bound to Anu's Crest, which allowed for their continuous regeneration. However, this arrangement came with its own shortcomings. When Diablo's power contaminated Anu's Crest, it had a profound impact on the angels of High Heaven, implicating them all.
+However, it was already too late at that point. The souls of the angels in all of High Heaven were bound to God Anu's Crest, which allowed for their continuous regeneration. However, this arrangement came with its own shortcomings. When Diablo's power contaminated God Anu's Crest, it had a profound impact on the angels of High Heaven, implicating them all.
 
-Under the contamination of Diablo's dark power, the angel's wings lost their light, and the power of the Holy Light no longer took care of them. At that time, the angels in the entire high heaven were abolished!
+Under the contamination of Diablo's dark power, the angel's wings lost their light, and the power of the Holy Light no longer took care of them. At that time, the angels in the entire High Heaven were abolished!
 
-If it wasn't for Tyrael, the archangel who cut off his light wings and condensed a mortal body at that time, he will be polluted by Diablo's power. Tyrael then brought a group of Nephalem warriors into the high-level heaven to help, afraid that the high-level heaven no longer exists.
+If it wasn't for Tyrael, the archangel who cut off his light wings and condensed a mortal body at that time, he will be polluted by Diablo's power. Tyrael then brought a group of Nephalem warriors into the High Heaven to help, afraid that the High Heaven no longer exists.
 
-Subsequently, Imperius became aware of the immense hidden danger posed to the angels. Therefore, during the reconstruction of High Heaven, he took measures to not only isolate the power connection between Anu's Crest Crystal and the angels but also employed his own formidable divine power. He sealed the Crystal Dome Hall and made it accessible only when necessary. However, due to lingering concerns, a special guardian angel was appointed as an added precaution.
+Subsequently, Imperius became aware of the immense hidden danger posed to the angels. Therefore, during the reconstruction of High Heaven, he took measures to not only isolate the power connection between God Anu's Crest Crystal and the angels but also employed his own formidable divine power. He sealed the Crystal Dome Hall and made it accessible only when necessary. However, due to lingering concerns, a special guardian angel was appointed as an added precaution.
 
 It's just that Imperius never thought that these settings he made would take effect after a short interval of ten years...
 
-When they saw Roy appearing, the four elite high-level angels recognized Roy immediately. Of course, they knew that the high-level heaven was attacked by the Demon King Osiris this time, but they had been guarding here and lacked contact with the outside world. So they didn't know what the situation was. After seeing Roy's appearance, they immediately realized sadly that the high-level paradise had been captured again.
+When they saw Roy appearing, the four elite upper rank angles recognized Roy immediately. Of course, they knew that the High Heaven was attacked by the Demon King Osiris this time, but they had been guarding here and lacked contact with the outside world. So they didn't know what the situation was. After seeing Roy's appearance, they immediately realized sadly that the High Heaven had been captured again.
 
 But it was their duty to guard the crystal dome, so they didn't think much about it, and immediately rushed up with their weapons in roar, launching a desperate blow to Roy.
 
-Although they were high-level angels, their attacks did not pose any threat to Roy. After a few minutes of delay, Roy destroyed the four guardian angels.
+Although they were upper rank angles, their attacks did not pose any threat to Roy. After a few minutes of delay, Roy destroyed the four guardian angels.
 
-Seeing their souls drift in through the gate of the crystal dome, Roy did not stop him. Anyway, he would be able to see Anu's Crest soon, and by then he would be able to see almost all the angel souls who died in battle.
+Seeing their souls drift in through the gate of the crystal dome, Roy did not stop him. Anyway, he would be able to see God Anu's Crest soon, and by then he would be able to see almost all the angel souls who died in battle.
 
 Taking a deep breath, Roy lifted his right hand, unleashing a surge of potent chaotic energy from his palm. The energy transformed into a misty beam of light, aimed at the door sealed by divine power. It carried the same force as Imperius's full strike, essentially putting Roy in a direct confrontation against him.
 
@@ -74,7 +74,7 @@ Under the continuous output of Roy's power, the power poured into the gate was f
 
 The sound even spread throughout the entire silver tower. The angels and the demons who were still at war below heard the whine. The demons headed by Mephisto and the three giants showed ecstatic expressions on their faces, while The angels leaded by Imperius were full of anxiety.
 
-"No! Anu's Crest, this never happen!
+"No! God Anu's Crest, this never happen!
 
 Imperius's inner anger could no longer be vented. He forced Mephisto back with one move, leaving his opponent and rushing towards the silver tower, wanting to rush and stop Roy.
 
@@ -103,4 +103,4 @@ Before he could finish his words, his entire body had turned into a light spot a
 
 Mephisto and the others watched this scene, but they didn't capture the soul of Itherael. The three old guys looked at each other, nodded, turned around and walked back, three scarlet portals suddenly appeared Appeared, teleported them back to the Hell of Flames.
 
-They just left Roy and returned to the Hell of Flames. As for whether they trusted Roy, they thought it was no problem for Roy to win the high-level heaven, or if they had other plans, only the three of them would know...
+They just left Roy and returned to the Hell of Flames. As for whether they trusted Roy, they thought it was no problem for Roy to win the High Heaven, or if they had other plans, only the three of them would know...

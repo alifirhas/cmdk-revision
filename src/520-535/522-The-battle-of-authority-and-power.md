@@ -2,15 +2,15 @@
 
 Countless demons and monsters swarmed from the many open portals like a flood.
 
-Except for some of these demons that were directly summoned from the Hell of Flames, the rest almost came from all over the Sanctuary. Diablo and the seven demon kings have been operating in the Sanctuary world for many years, leaving behind the dark power A large number of creatures have been corrupted, resulting in an astonishing number of monsters formed. The demon children that Roy spread out at the beginning stayed in the wilderness. Once the portal was opened, these guys were attracted.
+Except for some of these demons that were directly summoned from the Hell of Flames, the rest almost came from all over the Sanctuary. Diablo and the seven demon kings have been operating in the Sanctuary world for many years, leaving behind the dark power A large number of creatures have been corrupted, resulting in an astonishing number of monsters formed. The Imps that Roy spread out at the beginning stayed in the wilderness. Once the portal was opened, these guys were attracted.
 
-Even ordinary monsters, out of disgust for the power of the Holy Light, after they came to the high-level heaven, they involuntarily launched a charge with the demons. Such a large number of demons and monsters gathered together, and the pollution caused by the dark power was Very terrifying, these dark forces in turn stimulated their bloodthirsty instincts, so on the battlefield, the army of the dark camp was seen frantically launching a tsunami-like attack wave against the silver city.
+Even ordinary monsters, out of disgust for the power of the Holy Light, after they came to the High Heaven, they involuntarily launched a charge with the demons. Such a large number of demons and monsters gathered together, and the pollution caused by the dark power was Very terrifying, these dark forces in turn stimulated their bloodthirsty instincts, so on the battlefield, the army of the dark camp was seen frantically launching a tsunami-like attack wave against the silver city.
 
 bump! A sound came, and the moment the army of demons and monsters rushed to the city wall of the Silver City, it immediately inspired the protective barrier of the entire Silver City, and the golden holy light formed a huge semi-circular protective barrier in the blink of an eye. The shield covered the entire city, and it was this shield that the demons and monsters collided with for the first time.
 
 However, the shield proved inadequate in repelling the relentless onslaught of demons and monsters. Those creatures scorched by the holy light found themselves trapped with no means of escape. Pressed by the ceaseless tide of advancing monsters, their only recourse was to engage in frenzied combat, wielding weapons or resorting to biting with razor-sharp teeth and claws. Meanwhile, certain magical entities bombarded the shield with a barrage of spells and projectiles, employing every possible method to breach the protective barrier of light.
 
-Roy's demon children are scattered over the entire battlefield, which is equivalent to surrounding the entire silver city in all directions. This way, it has larger contact area. The first contact and attack the shield of the Holy Light enchantment. The more demons and monsters there are, even if the protective ability of the Holy Light Barrier in the Silver City is very strong, when facing so many monsters attacking at the same time, the energy will drop rapidly for a while.
+Roy's Imps are scattered over the entire battlefield, which is equivalent to surrounding the entire silver city in all directions. This way, it has larger contact area. The first contact and attack the shield of the Holy Light enchantment. The more demons and monsters there are, even if the protective ability of the Holy Light Barrier in the Silver City is very strong, when facing so many monsters attacking at the same time, the energy will drop rapidly for a while.
 
 Fortunately, at this time, the angel army in the silver city also reacted. A large number of angel warriors waved their light wings, flew high into the sky with weapons in their hands, and rushed over the city wall to the demons and monsters outside. In order to reduce the pressure on the barrier, They can only place the battlefield outside the enchantment.
 
@@ -18,7 +18,7 @@ However, doing this means that they can no longer enjoy the protection of the en
 
 The battle, from the very beginning, entered a state of intense heat...
 
-Imperius and Tyrael wanted to command the army to fight, especially Imperius, he was the supreme commander of the entire high heaven, but before he could call for an order, they were entangled by Roy.
+Imperius and Tyrael wanted to command the army to fight, especially Imperius, he was the supreme commander of the entire High Heaven, but before he could call for an order, they were entangled by Roy.
 
 After changing his passive defensive stance, Roy started to take the initiative to attack this time. The huge misty wing behind him slammed into the ground, and they saw the overwhelming black flames appear in the entire sky, the black flames dissipated. Clouds and mists within a few thousand meters rolled towards the four archangels.
 

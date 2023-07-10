@@ -20,7 +20,7 @@ This is nothing more than a process of your prejudging me and my prejudging, but
 
 This kind of meeting, in Roy's estimation, would not have too many people with Tyrael, maybe even Tyrael alone.
 
-Facts have proved that this is the case. The nephalems in this world have great power, but as an archangel of high heaven, Tyrael has not yet reached the point where he takes a vote of nephalem as his guards wherever he goes. The dignity of an angel would not allow him to do so.
+Facts have proved that this is the case. The nephalems in this world have great power, but as an archangel of High Heaven, Tyrael has not yet reached the point where he takes a vote of nephalem as his guards wherever he goes. The dignity of an angel would not allow him to do so.
 
 As long as you meet Tyrael, everything will be easy. Roy also guessed that the angels may be difficult to kill, so he specially created an item with similar functions to the dark soul stone, that is, his hand this crystal stone.
 
@@ -44,7 +44,7 @@ Roy said in surprise "Huh? How did you think of this step?"
 
 "You are a demon, what else can you do if you don't want to fight with angels?" Tyrael asked rhetorically.
 
-Roy shook his head and said, "You may think that I imprisoned your soul in order to reduce the battle power of an archangel from the high-level heaven, so that I can take the demon army to level the high-level heaven, right? Wrong? Now, you're thinking in the wrong direction!"
+Roy shook his head and said, "You may think that I imprisoned your soul in order to reduce the battle power of an archangel from the High Heaven, so that I can take the demon army to level the High Heaven, right? Wrong? Now, you're thinking in the wrong direction!"
 
 Raising his hand, Roy used the power of frost to instantly condense a high platform of ice crystals, and placed the crystal stone on the platform. What kind of special role does it play in Sanctuary!
 
@@ -52,7 +52,7 @@ Raising his hand, Roy used the power of frost to instantly condense a high platf
 
 "After coming to this world, the reason why I haven't done much is to use this time to study the history of this world!"
 
-"I noticed that the human history of Sanctuary has many records for your high-level paradise. if I remember correctly, you Archangel of Justice Tyrael, and your brother Archangel Imperius, Archangel of Hope - Auriel, Archangel of Destiny - Itherael, and Archangel of Wisdom - Malthael your five archangels formed a council of angels called Angus, which ruled the entire high heaven and continued to fight against demons."
+"I noticed that the human history of Sanctuary has many records for your High Heaven. if I remember correctly, you Archangel of Justice Tyrael, and your brother Archangel Imperius, Archangel of Hope - Auriel, Archangel of Destiny - Itherael, and Archangel of Wisdom - Malthael your five archangels formed a council of angels called Angus, which ruled the entire High Heaven and continued to fight against demons."
 
 "That's right, what's wrong with that?" Tyrael asked aloud.
 
@@ -72,7 +72,7 @@ He suddenly realized what Roy was trying to convey...
 
 "But Auriel rarely appears in front of the world, doesn't she?" Roy said with a smile "The same is true for you, although you are also a human now, but you are still an angel in your bones, so you may not be too Understand the minds of human beings, they will hold a skeptical attitude towards people or things they have not seen. Even if Auriel's negative vote at the time helped them, they would not care, but you appeared to them. Archangel in front of them, they will pour all their gratitude on you."
 
-"They will think that in the entire high heaven, only you care about the life and death of human beings. As for the other archangels, they are either indifferent to human beings, or they are hostile to human beings... Don't doubt, that's what they think!"
+"They will think that in the entire High Heaven, only you care about the life and death of human beings. As for the other archangels, they are either indifferent to human beings, or they are hostile to human beings... Don't doubt, that's what they think!"
 
 "...So, my disappearance will cause the relationship between the Nephalem and the High Heavens to deteriorate, isn't that so?" Tyrael said in a dejected manner.
 
@@ -84,7 +84,7 @@ Roy clenched his paw "And what I'm doing now is to break your bond!"
 
 If the attitude of the entire High Heaven towards the Nephalems is the same as Tyrael, then Tyrael does not have to worry about his disappearance at all, but the problem is here, his brother Imperius, are very hostile!
 
-The Archangel of Destiny Itherael is indifferent to human beings, while Malthael has fallen not long ago, attacking human beings as an angel of death, and wants to purify the half of the demon blood of Nephalem. It can be said that, Now in the entire high heaven, only Auriel can stop Imperius, but if Imperius does his own thing, then as the leader, he may really bring all the angels to execute the Nephalem. purified...
+The Archangel of Destiny Itherael is indifferent to human beings, while Malthael has fallen not long ago, attacking human beings as an angel of death, and wants to purify the half of the demon blood of Nephalem. It can be said that, Now in the entire High Heaven, only Auriel can stop Imperius, but if Imperius does his own thing, then as the leader, he may really bring all the angels to execute the Nephalem. purified...
 
 What's more, there is now a new demon king like Roy in Sanctuary. If he provokes it, the relationship between Nephalem and angels should not deteriorate too quickly...
 
@@ -100,7 +100,7 @@ In fact, in Roy's opinion, whether it is an angel or a demon, it is not a good b
 
 Besides, when did Roy say that he was going to destroy the world and destroy mankind? Tyrael is suffering from paranoia, right?
 
-What he is doing now is nothing more than making arrangements for a possible future war with the high-level heaven... As for whether it will really work, it depends... When Lilith returns!
+What he is doing now is nothing more than making arrangements for a possible future war with the High Heaven... As for whether it will really work, it depends... When Lilith returns!
 
 Roy ignored Tyrael's shout and sat back on the throne to think.
 

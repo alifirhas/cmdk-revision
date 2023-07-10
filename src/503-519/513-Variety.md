@@ -8,7 +8,7 @@ The disappearance of Tyrael will take time to ferment and the relationship betwe
 
 Of course, waiting does not mean that Roy does nothing. In fact, after considering several follow-up developments after Tyrael's disappearance, Roy thinks that he needs an army, a huge army of demons, in order to use Deal with a possible attack from the High Heavens.
 
-As long as you don't hide in the purgatory space of the flame hell, then in the world of Sanctuary, Roy's whereabouts will be discovered sooner or later. After all, the high-level heaven has lost an archangel and this archangel It is not as degenerate as Malthael, so it is certain that after finding out that Roy did not perish with Tyrael, the high heaven will definitely take revenge on Roy.
+As long as you don't hide in the purgatory space of the flame hell, then in the world of Sanctuary, Roy's whereabouts will be discovered sooner or later. After all, the High Heaven has lost an archangel and this archangel It is not as degenerate as Malthael, so it is certain that after finding out that Roy did not perish with Tyrael, the High Heaven will definitely take revenge on Roy.
 
 In this case, a powerful army of demons is essential for Roy. He is even thinking about whether to summon Julia, Beniam, and the others to this world to manage the army for him.
 
@@ -52,7 +52,7 @@ A year passed quickly. During this year, Roy's Demon King's Palace was also comp
 
 In the course of this year, the consequences of Tyrael's disappearance have gradually spread.
 
-The New Horadrim Church was originally founded by Tyrael. After losing Tyrael as a leader, the New Horadrim Church was in a state of leaderless. They began to argue internally about what the Church should do next. Incessantly, some people do not believe that Archangel Tyrael is really dead, so they suggest looking for Tyrael's whereabouts, while others suggest expanding the power of the church to prevent the comeback of the Seven demons, and some people think that they should contact the high-level heaven as soon as possible. In short, the internal opinions are chaotic.
+The New Horadrim Church was originally founded by Tyrael. After losing Tyrael as a leader, the New Horadrim Church was in a state of leaderless. They began to argue internally about what the Church should do next. Incessantly, some people do not believe that Archangel Tyrael is really dead, so they suggest looking for Tyrael's whereabouts, while others suggest expanding the power of the church to prevent the comeback of the Seven demons, and some people think that they should contact the High Heaven as soon as possible. In short, the internal opinions are chaotic.
 
 It is a pity that the elite Nephalem warriors with powerful power in the Horadrim Church are not the management. This has to be said to be a mistake by Tyrael. These warriors are usually only responsible for combat. They rarely interfere in internal affairs, which leads to the fact that in the case of internal chaos, they can't speak at all, and no one wants to listen to their opinions.
 
@@ -62,9 +62,9 @@ But... in the human history of Sanctuary, there has never been a lack of such a 
 
 During this period, high-ranking celestial messengers were dispatched to inquire about Tyrael's whereabouts. Concern arose as Tyrael had not returned to the High Heavens for the customary debriefing, and his soul had not been reborn within the Crystal Arch. News of his whereabouts had been lost for an extended period of time.
 
-At this inquiry, the people of the Horadrim Church could only tell the truth and told their guesses to the messenger of the high heaven, saying that Tyrael may have perished with the Demon King Osiris.
+At this inquiry, the people of the Horadrim Church could only tell the truth and told their guesses to the messenger of the High Heaven, saying that Tyrael may have perished with the Demon King Osiris.
 
-When this news was passed back to the high heaven and was known by Imperius, the archangel was furious!
+When this news was passed back to the High Heaven and was known by Imperius, the archangel was furious!
 
 Although there have been disputes in the past, Tyrael is Imperius' brother after all. In the long eternal battle, Tyrael has always fought side by side with Imperius. Such friendship cannot be erased by disputes...
 

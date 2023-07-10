@@ -4,7 +4,7 @@ Flying all the way from high altitude, what Tyrael saw was devastated, and the t
 
 And the culprit behind all this is not a demon, but an angel...
 
-The high-level paradise almost reproduced the attack trajectory of Malthael. The first attack they attacked was Westmarch City, this unfortunate city, which was just destroyed by Malthael's Soul Reaper army once before. It has only been rebuilt for a few years, but it was once again destroyed by the hands of angels.
+The High Heaven almost reproduced the attack trajectory of Malthael. The first attack they attacked was Westmarch City, this unfortunate city, which was just destroyed by Malthael's Soul Reaper army once before. It has only been rebuilt for a few years, but it was once again destroyed by the hands of angels.
 
 It's no wonder that the former refugee of Westmarch was so excited after seeing Tyrael. Compared with demons, these residents of Westmarch were more afraid of angels.
 
@@ -14,7 +14,7 @@ On the western continent, the angel army attacked from Westmarch City all the wa
 
 Tyrael watched all this with sorrow. He saw that in the sky of Sanctuary, there were armed angel warriors flapping with light wings everywhere. They flew in the sky and attacked any human beings that could be seen on the ground. As long as there are more than a certain number of humans gathered together, angels will be killed.
 
-In the same way, these angels will also be counterattacked by the Nephalems, but the angels who can fly have a natural advantage, and compared with the militarized organizations of the high-level heaven, the Nephalems lack a unified action command, they only formed squads sporadically and fought against angel armies all over the world, so even if some of the elite Nephalem warriors were very powerful, they could only achieve some local victories.
+In the same way, these angels will also be counterattacked by the Nephalems, but the angels who can fly have a natural advantage, and compared with the militarized organizations of the High Heaven, the Nephalems lack a unified action command, they only formed squads sporadically and fought against angel armies all over the world, so even if some of the elite Nephalem warriors were very powerful, they could only achieve some local victories.
 
 Of course, the angel army is only estimated to have an advantage in the early stage of the war. It might be the other way around then...
 
@@ -26,11 +26,11 @@ Tyrael, who was flying in the air, was naturally seen by the angel soldiers. The
 
 "Damn, how dare he!?" Tyrael was in a hurry, pushed the angel sergeant away, and said, "Make yourself and your warriors withdraw immediately! The invasion of Sanctuary will make mortals completely stand against us. Do you understand!?"
 
-"Yes, Lord Tyrael!" The sergeant of the angel came back to his senses and said embarrassingly: "Forgive me but obey your orders. The decision of the war was ordered by Lord Imperius himself. You may not know that when you disappeared, During this period of time, mortals have repeatedly desecrated the majesty of the high heaven..."
+"Yes, Lord Tyrael!" The sergeant of the angel came back to his senses and said embarrassingly: "Forgive me but obey your orders. The decision of the war was ordered by Lord Imperius himself. You may not know that when you disappeared, During this period of time, mortals have repeatedly desecrated the majesty of the High Heaven..."
 
 "Damn... I have to get back to High Heaven as soon as possible!" Tyrael heard this and knew that the sergeant could not obey his orders. After all, Imperius was the leader of High Heaven and the angel soldiers were Impossible to disobey his orders.
 
-So Tyrael left these angel soldiers, ripped apart the space directly, and entered the purgatory space layer where the high heaven is located.
+So Tyrael left these angel soldiers, ripped apart the space directly, and entered the purgatory space layer where the High Heaven is located.
 
 The Silver City, this is the name of the city where the angels live. This is a unique small world. All the buildings in the city have shining spires, and a huge winding buttress surrounds the entire city. There is a pulsating light in the building.
 
@@ -38,21 +38,21 @@ The whole city is a harmonious whole. Every archangel of the Angus Council has i
 
 The place where the Archangel Auriel of Hope lives is called the "Garden of Hope", which is a quiet corner of the Silver City, where the angels go to seek the clarity and tranquility of the soul, and the voice of the choir is always there. Not reverberating in the Garden of Hope, bringing the spirits of the angels into harmony and unity.
 
-The residence of the fate archangel Itherael is the "Fate Library". As an archangel with the name of "destiny", Itherael's duty is to be responsible for reading the library and what is shown in the crystals. Mysterious and obscure fate. The crystals in the Library of Destiny are said to come from fragments of the crystal arches. The crystal arches were once thought to be the vertebrae of Anu, so the angels believed that these crystal fragments also carried the power of Anu.
+The residence of the fate archangel Itherael is the "Fate Library". As an archangel with the name of "destiny", Itherael's duty is to be responsible for reading the library and what is shown in the crystals. Mysterious and obscure fate. The crystals in the Library of Destiny are said to come from fragments of the crystal arches. The crystal arches were once thought to be the vertebrae of God Anu, so the angels believed that these crystal fragments also carried the power of God Anu.
 
 As for the original angel of wisdom, Malthael, the place where he lived was called the "Pool of Wisdom". The water in the pool came from an artifact called the "Holy Grail of Wisdom". It is said that the water flowing out of this pool is infinitely deep. The wells of emotion, they are the sum total of all the emotions experienced by all sentient beings in the universe at this moment, and before the fall, Malthael often stared at these pools of water alone...
 
 Lastly, there is the "Court of Justice" where the Archangel of Justice, Tyrael, resides. It takes the form of a vast auditorium, serving as a gathering place for the angels. Within these halls, their grievances, conflicts, and pleas are all met with impartial judgment and rulings, ensuring justice prevails.
 
-The residences of the five archangels form the core area of ​​the Silver City. At the very center of this core area stands the Crystal Arch, an incomparably tall and majestic dome of light, the place where all angel souls return. Therefore, it is also the core of the entire high heaven.
+The residences of the five archangels form the core area of ​​the Silver City. At the very center of this core area stands the Crystal Arch, an incomparably tall and majestic dome of light, the place where all angel souls return. Therefore, it is also the core of the entire High Heaven.
 
-The outermost part of the Silver City is surrounded by city walls. Only one gate can enter the city. This gate is the "Diamond Gate", also known as the "King Kong Gate". This gate is the most solid fortress. For thousands of years, the army of demon has entered the high-level heaven several times, but they have never been able to break through the gate of diamond, let alone enter the interior of the silver city.
+The outermost part of the Silver City is surrounded by city walls. Only one gate can enter the city. This gate is the "Diamond Gate", also known as the "King Kong Gate". This gate is the most solid fortress. For thousands of years, the army of demon has entered the High Heaven several times, but they have never been able to break through the gate of diamond, let alone enter the interior of the silver city.
 
 However, the last time Diablo returned with the power of the Seven Demon Kings, he finally broke through the Diamond Gate. Even that time, Diablo once invaded the crystal arch deep in the core, but when he wanted to corrupt When it came to the Crystal Arch, it ultimately failed.
 
-After this battle, the Silver City gradually removed the erosion and pollution left by the demons, and repaired the Diamond Gate. The current high-level paradise is no different from the past.
+After this battle, the Silver City gradually removed the erosion and pollution left by the demons, and repaired the Diamond Gate. The current High Heaven is no different from the past.
 
-When Tyrael returned to the high-level heaven, he appeared directly in his residence, the justice court. As soon as he walked out, he saw a large number of angel troops moving back and forth in the entire silver city, a busy and tense scene. , It seems that under the order of Imperius, the high heaven has entered a state of war.
+When Tyrael returned to the High Heaven, he appeared directly in his residence, the justice court. As soon as he walked out, he saw a large number of angel troops moving back and forth in the entire silver city, a busy and tense scene. , It seems that under the order of Imperius, the High Heaven has entered a state of war.
 
 But this time, their opponents are not the army of hell, but the humans of Sanctuary...
 
@@ -60,7 +60,7 @@ Tyrael hurried to the Hall of Courage. He broke into the hall and saw Imperius w
 
 "Imperius!" Tyrael shouted excitedly and roar  "Why do you order to attack humans!?"
 
-"Tyrael!?" Imperius was also a little surprised when he saw him, but then he reacted and snorted coldly "Tyrael, where have you been during this time!? Why hasn't it been so long? Returning to the high-level heaven to report on work?"
+"Tyrael!?" Imperius was also a little surprised when he saw him, but then he reacted and snorted coldly "Tyrael, where have you been during this time!? Why hasn't it been so long? Returning to the High Heaven to report on work?"
 
 Hearing Imperius' words, Tyrael calmed down a little. He also remembered that he had been trapped for so long after all, and High Heaven had no news of him for a long time. He shared what happened at the beginning with Demon King Osiris.
 
@@ -70,7 +70,7 @@ Hearing Imperius' words, Tyrael calmed down a little. He also remembered that he
 
 "Silent!" Impression shouted and said angrily "Tyrael, you dare to accuse me like this when you come back? Your soul is imprisoned by demons, I don't blame you for this, but You don't even know the cause and effect of the incident, so you are talking nonsense about me!? Do you know what those mortals have done to the faith of Holy Light!?"
 
-In the end, Imperius once again emphasized "I am the leader of the high-level heaven. All your decisions and mine are for the majesty of the high-level heaven and you have no right to accuse me!"
+In the end, Imperius once again emphasized "I am the leader of the High Heaven. All your decisions and mine are for the majesty of the High Heaven and you have no right to accuse me!"
 
 "But what if all this is a conspiracy of the demon!?" Tyrael argued rationally "Haven't you ever thought about it, what if all this was caused by the bewitching of the demon Osiris?"
 
@@ -88,7 +88,7 @@ Before Imperius's voice could fall, the Bright Soul Stone, which was taken out b
 
 "What's going on?" Imperius looked confused.
 
-Tyrael sighed and said "This is exactly what I want to say, our real enemy now is not the nephalem, but the demon! This bright soul stone has the time and space beacon set by the demon king Osiris. The moment I entered the high-level heaven, he grasped the location of the high-level heaven in the Book of Truth, and soon he would open the portal through this soul stone and lead the demon army into the high-level heaven..."
+Tyrael sighed and said "This is exactly what I want to say, our real enemy now is not the nephalem, but the demon! This bright soul stone has the time and space beacon set by the demon king Osiris. The moment I entered the High Heaven, he grasped the location of the High Heaven in the Book of Truth, and soon he would open the portal through this soul stone and lead the demon army into the High Heaven..."
 
 "You Tyrael!"
 

@@ -20,7 +20,7 @@ Roy nodded. This is true. When he was still in the abyss world, Benia once told 
 
 "Like? So, you are not sure?" Roy asked.
 
-"Yes, Trag'Oul, she is hiding in a gap between Sanctuary and Purgatory. This gap seems to have been created by her. Unless she wants to, no one can get there. Then Over the years, she has rarely appeared in the world, and she has been hiding very well!" Mephisto said with some hatred "This guy claims to be the guardian of the Sanctuary, when Inarius and Lilith created the In the world of Sanctuary, the Sanctuary was hidden from the high-level heaven and the Hell of Flames. After Lilith and Inarius turned against each other and were exiled, Sanctuary was almost exposed to heaven and hell, but Trag'Oul actually took action at this time, wrapped her body around the world of Sanctuary, and continued to hide it! So much so that by the time we discovered the existence of Sanctuary, the world had existed for a long time..."
+"Yes, Trag'Oul, she is hiding in a gap between Sanctuary and Purgatory. This gap seems to have been created by her. Unless she wants to, no one can get there. Then Over the years, she has rarely appeared in the world, and she has been hiding very well!" Mephisto said with some hatred "This guy claims to be the guardian of the Sanctuary, when Inarius and Lilith created the In the world of Sanctuary, the Sanctuary was hidden from the High Heaven and the Hell of Flames. After Lilith and Inarius turned against each other and were exiled, Sanctuary was almost exposed to heaven and hell, but Trag'Oul actually took action at this time, wrapped her body around the world of Sanctuary, and continued to hide it! So much so that by the time we discovered the existence of Sanctuary, the world had existed for a long time..."
 
 "...Well, it was mentioned in Rathma's book that Trag'Oul is a long dragon formed by connecting stars. Will the Star Soul Titan also incarnate in this shape?" Roy asked thoughtfully.
 
@@ -108,7 +108,7 @@ Looking back, Roy asked Mephisto "Can you see the future fragments from the long
 
 "That's absolutely, she wiped out all the demons in the entire Sanctuary!" Mephisto said with certainty "So it's hard to guarantee that after her return this time, she will also take action against demons like us. You know, this Women don't have any concept of race!"
 
-"After all this, I should leave too! Young Demon King Osiris, my brother and I will regain our strength soon, and then we will fight side by side with you to completely destroy the high heaven and kill this place. All angels! The eternal battle of this world will finally end in your hands, and I guarantee that your bravery will be sung throughout the abyss world..."
+"After all this, I should leave too! Young Demon King Osiris, my brother and I will regain our strength soon, and then we will fight side by side with you to completely destroy the High Heaven and kill this place. All angels! The eternal battle of this world will finally end in your hands, and I guarantee that your bravery will be sung throughout the abyss world..."
 
 As he spoke, Mephisto's figure slowly sank down, and finally completely disappeared in the hall.
 
@@ -126,7 +126,7 @@ Her avatar, like the original Urgash, may have been eroded by the power of the v
 
 Perhaps it is because of this that Lilith becomes unstoppable, and Mephisto may have seen Roy's figure in the future clips. This is how he really came forward and invited Roy to come to this sanctuary. The real reason for the world!
 
-He either wanted Roy to resolve this disaster that might involve the Seven Demon Kings, or he wanted Roy to be a shield! You must know that the seven demon kings are now hidden in the **** of flames, and there is only a demon king like Roy in the sheltered land. After Lilith returns, she will definitely vent her anger from being exiled for many years. Whether it is an angel or a demon, she is the target of venting. And Roy, the only demon king on the earth, is the best shield of the flaming hell!
+He either wanted Roy to resolve this disaster that might involve the Seven Demon Kings, or he wanted Roy to be a shield! You must know that the seven demon kings are now hidden in the Burning Hell, and there is only a demon king like Roy in the sheltered land. After Lilith returns, she will definitely vent her anger from being exiled for many years. Whether it is an angel or a demon, she is the target of venting. And Roy, the only demon king on the earth, is the best shield of the flaming hell!
 
 "You think you can deceive me? It won't be so simple!" Roy sneered. Mephisto may be unaware that Roy is in a different world, but Roy has encountered other avatar of Lilith. There exists a peculiar connection, an inexplicable bond between Roy and Lilith that Mephisto cannot fathom!
 
@@ -136,7 +136,7 @@ Of course, Roy's current appearance has already changed, but it doesn't matter, 
 
 "Come on, now I wish Lilith came back early, just in time for the biggest banquet between angels, demons and humans!"
 
-The boundless darkness filled the entire Demon King's Palace, and Roy's power was exuding recklessly. In this lightless world, only his pair of bright red demon children were left, shining a strong light in the darkness...
+The boundless darkness filled the entire Demon King's Palace, Roy's power was exuding recklessly. In this lightless world, only his pair of bright red eye were left, shining a strong light in the darkness...
 
 ## Change Notes
 

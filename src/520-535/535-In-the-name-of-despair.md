@@ -2,33 +2,33 @@
 
 After the violent burst of light, the disintegration of the crystal arch followed, huge spider web-like cracks spread all over the surface of the tower crushed into stones of various sizes from hundreds of catties to hundreds of tons collapsed. It fell from a height of three kilometers and hit the ground with an astonishing loud noise and tremor.
 
-In every corner of the high-level heaven, there were still some surviving angels who did not give up their resistance and still fighting against demons, but after the strong light that erupted just now, they all involuntarily looked up in the direction of the crystal arch. They could only stare at the collapsed scene in stunned silence.
+In every corner of the High Heaven, there were still some surviving angels who did not give up their resistance and still fighting against demons, but after the strong light that erupted just now, they all involuntarily looked up in the direction of the crystal arch. They could only stare at the collapsed scene in stunned silence.
 
-The crystal arch is the belief of all high-level heavenly angels. For many angels, the crystal arch has been standing there from the moment they were born. It has stood for thousands of years. In the thinking of the angels, they would never thought it would fall.
+The crystal arch is the belief of all High Heavenly angels. For many angels, the crystal arch has been standing there from the moment they were born. It has stood for thousands of years. In the thinking of the angels, they would never thought it would fall.
 
 But now, this scene has really appeared. The angels thought they had seen an illusion and couldn't believe it.
 
 Among those witnessing the cataclysmic event, there were beings whose expressions mirrored that of the angels. These beings were the demons. Despite their incessant clamor for the downfall of the high heavens, they had never truly comprehended the spectacle that would unfold when their desired destruction became a reality. As they beheld the crumbling of the Crystal Arch, the very symbol of the high heavens, confusion gripped them. Just like the angels, they stood in stunned silence, unable to fathom the unfolding events before their eyes.
 
-As a result, the collapse of the crystal arch lasted for more than an hour. Everyone in the high-level paradise watched it for more than an hour. The thrilling scene had made them forget that they were still fighting.
+As a result, the collapse of the crystal arch lasted for more than an hour. Everyone in the High Heaven watched it for more than an hour. The thrilling scene had made them forget that they were still fighting.
 
-The crystal arch, which was more than three kilometers high, finally collapsed and the ruins left behind were more than two hundred meters high, and the smoke and dust it set off filled the area for hundreds of kilometers, it did not disperse for a long time. Because of the massive loss of holy power, all the angles became fragile. Anu's Crest Crystal was blown into countless fragments in the explosion. These fragments were buried in the ruins along with the rubble at the moment. Even so, the black desolate virus attached to these fragments has not yet spread. After disappearing, the energy-loving virus is still greedily absorbing the remaining energy in the debris.
+The crystal arch, which was more than three kilometers high, finally collapsed and the ruins left behind were more than two hundred meters high, and the smoke and dust it set off filled the area for hundreds of kilometers, it did not disperse for a long time. Because of the massive loss of holy power, all the angles became fragile. God Anu's Crest Crystal was blown into countless fragments in the explosion. These fragments were buried in the ruins along with the rubble at the moment. Even so, the black desolate virus attached to these fragments has not yet spread. After disappearing, the energy-loving virus is still greedily absorbing the remaining energy in the debris.
 
-These shards resembled the flickering life of a dying patient, their dark light a desperate attempt to cling to existence. Gradually, their feeble struggle waned until every trace of energy was depleted, leaving them enveloped in complete darkness. This marked the dissipation of the high heaven's last remnants of light.
+These shards resembled the flickering life of a dying patient, their dark light a desperate attempt to cling to existence. Gradually, their feeble struggle waned until every trace of energy was depleted, leaving them enveloped in complete darkness. This marked the dissipation of the High Heaven's last remnants of light.
 
 As the immense tremors subsided, the demons snapped out of their stupor. Once they comprehended the magnitude of the event that had transpired, a unified roar of exhilaration erupted from their ranks.
 
-This time, the entire high-level heaven, all kinds of roars of demons resounded, celebrating the victory!
+This time, the entire High Heaven, all kinds of roars of demons resounded, celebrating the victory!
 
 Afterwards, the demons looked at Roy who was slowly descend in the sky with frantic eyes. They shouted the name of Osiris, the king of demons, and squatted on the ground, paying Osiris the highest tribute to the demons.
 
 At this moment, to the demons, the name of Osiris is even greater than the Seven Deadly Sins...
 
-As for the surviving angels, there is only endless sadness left at this moment. They looked at Roy with hatred, but none of the angels launched a vengeance charge against Roy, because they all knew that the high-level heaven was over.
+As for the surviving angels, there is only endless sadness left at this moment. They looked at Roy with hatred, but none of the angels launched a vengeance charge against Roy, because they all knew that the High Heaven was over.
 
-Incomparable despair grew in the hearts of the angels. They pulled out their weapons, pierced them into their chests, and chose to commit suicide to be buried with the high heaven.
+Incomparable despair grew in the hearts of the angels. They pulled out their weapons, pierced them into their chests, and chose to commit suicide to be buried with the High Heaven.
 
-However, since Anu's Crest Crystal had collapsed, after these angels committed suicide, their souls could not find a place to go, so they could only keep hovering near the corpse.
+However, since God Anu's Crest Crystal had collapsed, after these angels committed suicide, their souls could not find a place to go, so they could only keep hovering near the corpse.
 
 Roy, who was slowly falling, did not see these suicide angels, but an inexplicable feeling made him turn his head and look at the location of these suicide angels. After thinking about it, he waved, and soul turned into a streamer and flew towards his location.
 
@@ -38,7 +38,7 @@ Almost at the moment of contact with these souls, Roy noticed an extreme negativ
 
 This feeling is called "despair"!
 
-Angels will have this kind of emotion, but Roy can understand that the destruction of the crystal arch means that the high-level heaven has completely fallen, and the remaining angels are unable to save, so that they commit suicide in despair. These dying emotions are completely inherited by the soul, and finally Formed this [desperate soul].
+Angels will have this kind of emotion, but Roy can understand that the destruction of the crystal arch means that the High Heaven has completely fallen, and the remaining angels are unable to save, so that they commit suicide in despair. These dying emotions are completely inherited by the soul, and finally Formed this [desperate soul].
 
 However, these are not what Roy cares about. What he cares about is that these desperate souls are actually resonating with his Mobius Mark!
 
@@ -92,7 +92,7 @@ He looked at the large number of demons who were all around him, and saw that th
 
 "My name is Osiris! In the name of the King of Despair, I hereby declare the destruction of the High Heavens! Declare the defeat of the archenemy Angel! Declare - the end of the eternal war!"
 
-As Roy's voice fell, countless demons gathered in the high-level heaven made a frantic roar. They were venting their excitement that was about to get out of control. After the roar, they shouted loudly in demon language. Roy's real name.
+As Roy's voice fell, countless demons gathered in the High Heaven made a frantic roar. They were venting their excitement that was about to get out of control. After the roar, they shouted loudly in demon language. Roy's real name.
 
 On this day, a name resounded through hell and heaven, through Sanctuary, through the entire Diablo world.
 

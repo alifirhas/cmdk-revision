@@ -8,7 +8,7 @@ The dark soul stone has long been destroyed. This Rakkis tomb is just an empty s
 
 The only thing to say is possible, that is the strength of the demon king Osiris in front of him, which seems to be a bit beyond his imagination.
 
-After the death angel Malthael was defeated and suppressed, Tyrael has returned to the high heaven and restored his identity as an archangel. Not only that, he also took over the authority of the original Malthael angel of wisdom. In other words, Tyrael actually acquired part of Malthael's Mobius Mark!
+After the death angel Malthael was defeated and suppressed, Tyrael has returned to the High Heaven and restored his identity as an archangel. Not only that, he also took over the authority of the original Malthael angel of wisdom. In other words, Tyrael actually acquired part of Malthael's Mobius Mark!
 
 Although this part of the Mobius Mark did not bring much power to Tyrael, it made him stronger than before, which is why he dared to set traps alone and then confront Roy. It seems that he is more than enough to deal with a Demon King at this moment.
 
@@ -62,9 +62,9 @@ The light wing behind him is actually a holy light, a kind of light, but the Dem
 
 This Demon King Osiris, his power is even more terrifying to angels than the purest dark power, but his holy light has no effect on him. Under the attack of the powerful divine punishment just now, he There is nothing at all!?
 
-"I see!" Tyrael looked at Roy solemnly, and said, "The so-called trap you want to take advantage of this opportunity to kill me, right? I have to say, you may be able to succeed... but Demon, you may not know that you can never kill me in this world, as long as the high heaven still exists, I can be reborn in the crystal arch! Even if you can defeat me this time, I also know your power, You won't be so lucky next time!"
+"I see!" Tyrael looked at Roy solemnly, and said, "The so-called trap you want to take advantage of this opportunity to kill me, right? I have to say, you may be able to succeed... but Demon, you may not know that you can never kill me in this world, as long as the High Heaven still exists, I can be reborn in the crystal arch! Even if you can defeat me this time, I also know your power, You won't be so lucky next time!"
 
-Of course, Roy knew what Tyrael meant. In the legends of this world, after the creation gods Anu and Tathamet died together, several parts of their bodies remained, and Anu's eyes became With the World Stone, the pillars turned into crystal domes, and Tathamet's body turned into an abyss oven. Angels were born on the basis of the crystal dome. Whenever an angel fell, the crystal dome would immediately destroy his soul. Recall, and new angels are born, which is the reincarnation of their souls, and it only takes a short time for the reincarnated angels to retrieve their previous memories.
+Of course, Roy knew what Tyrael meant. In the legends of this world, after the creation gods God Anu and Tathamet died together, several parts of their bodies remained, and God Anu's eyes became With the World Stone, the pillars turned into crystal domes, and Tathamet's body turned into an abyss oven. Angels were born on the basis of the crystal dome. Whenever an angel fell, the crystal dome would immediately destroy his soul. Recall, and new angels are born, which is the reincarnation of their souls, and it only takes a short time for the reincarnated angels to retrieve their previous memories.
 
 The same goes for demons, who are resurrected from the flames of the Abyssal Oven when they die.
 
@@ -84,11 +84,11 @@ He didn't use the power of Mobius Mark, of course Roy would not be polite and be
 
 The battle lasted a day and a night, and finally ended with Tyrael being severely wounded by having his two wings of light severed.
 
-Tyrael lay on the ground, still maintaining his mortal appearance, facing Roy's frostmourne sword tip, his face was calm, and he said to Roy "Demon Osiris, this time you won, but I guarantee that the revenge of the high heaven will come soon, and you will be sealed in this world like Mephisto Diablo!"
+Tyrael lay on the ground, still maintaining his mortal appearance, facing Roy's frostmourne sword tip, his face was calm, and he said to Roy "Demon Osiris, this time you won, but I guarantee that the revenge of the High Heaven will come soon, and you will be sealed in this world like Mephisto Diablo!"
 
 "Strange, I thought you would say: 'Nephalem won't let you go' or something..." Roy showed a wicked smile "What? Don't you plan to ask those Nephalem people for help this time?"
 
-"High-level heaven also has the mission of high-level heaven!" Tyrael responded coldly "Fighting with demons is the responsibility of angels! Kill me, but next time, I will not let you go!"
+"High Heaven also has the mission of High Heaven!" Tyrael responded coldly "Fighting with demons is the responsibility of angels! Kill me, but next time, I will not let you go!"
 
 Roy put away his sword, stretched out his demonic claws, grabbed Tyrael's head, lifted him up and twisted him into the air, staring straight at him, Tyrael's face was expressionless, and he looked like he was slaughtering his neck.
 
@@ -119,7 +119,6 @@ Roy reached out and grabbed the crystal stone, weighed it in his hand, and final
 "You deserve to be beaten to death so many times..."
 
 Shaking his head, Roy unfolded the large demon wing behind him and flew into the sky. After finding a random direction, he left at high speed. After he left for a long time, the people from the Horadrim Church came tremblingly. After arriving at the location of Rakkis's tomb, they only saw the boundless golden crystallized plain, as for their leader Archangel Tyrael, there was no trace...
-
 
 ## Change Notes
 

@@ -6,9 +6,9 @@ In the sea of ​​clouds outside the Diamond Gate, Tyrael put down the Bright 
 
 The location he chose is called the Sea of ​​Clouds Plain. Although it is the Sea of ​​Clouds, it is actually the foundation below, which is the extension of the foundation of the entire Silver City. However, due to the particularity of the space where the high-order heaven is located, this piece of land has been tumbling and growing. The clouds and mists are endless throughout the year, so it looks like clouds here.
 
-For thousands of years, the demon army of the abyss of Flames has invaded the high-level heaven several times. It was used by the army when the high-level heaven invaded abyss. Anyway, during the whole process of the eternal battle, the demons fought the high-level heaven, and the angels also fought the flame abyss.
+For thousands of years, the demon army of the abyss of Flames has invaded the High Heaven several times. It was used by the army when the High Heaven invaded abyss. Anyway, during the whole process of the eternal battle, the demons fought the High Heaven, and the angels also fought the flame abyss.
 
-In fact, whether it is Tyrael or Imperius, when they know that the demon army is about to attack the high-level heaven, they are not too anxious in their hearts, because they are already familiar with this set of offensive and defensive processes.
+In fact, whether it is Tyrael or Imperius, when they know that the demon army is about to attack the High Heaven, they are not too anxious in their hearts, because they are already familiar with this set of offensive and defensive processes.
 
 The angel army of the entire silver city is being mobilized in an orderly manner, but due to the previous attack on the Sanctuary, there are still many angel troops that have not been transferred back. Tt is not Mephisto who came to attack the silver city this time, neither the seven old-fashioned demon kings, is a strange demon king, making the angels are still a little uncertain about what the other party will do.
 
@@ -24,13 +24,13 @@ Whether it's Imperius, Auriel, or Itherael, what they are shrouded under the vis
 
 "Is this the sphere that can seal the soul of the archangel?" Auriel asked curiously. Her voice sounded so gentle, like a harmonious movement, unforgettable.
 
-Tyrael nodded and said "Yes, if my guess is correct, the trembling of the sphere is that the devil Osiris is trying to contact this sphere, and Osiris will use it as a beacon to open the portal directly enter high heaven."
+Tyrael nodded and said "Yes, if my guess is correct, the trembling of the sphere is that the devil Osiris is trying to contact this sphere, and Osiris will use it as a beacon to open the portal directly enter High Heaven."
 
 "This sphere can no longer fall into the hands of any demons!" Imperius snorted coldly "If the Demon King Osiris wants to open the gate of abyss to summon demons, it will be wishful thinking! After he appears, we will kill him first, without giving him any chance to open the gate of abyss. After defeating him, they will recover the sphere and try to erase the space-time beacon on it. In this way, the next time the demon will stop trying to use it for teleportation."
 
-"This is exactly why I brought it back!" Tyrael nodded and said solemnly "Osiris set up a conspiracy for me, so that I had to expose the location of the high heaven to him, but as long as By defeating him with absolute power, we can break this conspiracy!"
+"This is exactly why I brought it back!" Tyrael nodded and said solemnly "Osiris set up a conspiracy for me, so that I had to expose the location of the High Heaven to him, but as long as By defeating him with absolute power, we can break this conspiracy!"
 
-Auriel also nodded and said: "Fortunately, ordinary low-level demons can't open the portal in the space where the high-level heaven is located, and the seven demon kings are still recovering their power, so we are only Just need to guard against Osiris..."
+Auriel also nodded and said: "Fortunately, ordinary low-level demons can't open the portal in the space where the High Heaven is located, and the seven demon kings are still recovering their power, so we are only Just need to guard against Osiris..."
 
 Imperius looked at Itherael, who had not spoken, and asked, "Has your destiny scroll displayed any content?"
 
@@ -68,7 +68,7 @@ Justice will fall to the mortal world, which should refer to the incident in whi
 
 Death will spread its wings, covering the sky and the sun, referring to the fallen angel of death, Malthael.
 
-As for heroically turning the raging flames into anger, it should be Imperius. He gathered the power of the Seven Demon Kings in Diablo and entered the high-level heaven. Imperius was indeed defeated that time. With his extremely proud personality, this naturally became his most humiliating failure. Whenever he thought of the almost contaminated crystal arch at that time, Imperius was extremely angry in his heart, and even Auriel was always worried about Imperius. Will this negative emotion and eventually go to some extreme?
+As for heroically turning the raging flames into anger, it should be Imperius. He gathered the power of the Seven Demon Kings in Diablo and entered the High Heaven. Imperius was indeed defeated that time. With his extremely proud personality, this naturally became his most humiliating failure. Whenever he thought of the almost contaminated crystal arch at that time, Imperius was extremely angry in his heart, and even Auriel was always worried about Imperius. Will this negative emotion and eventually go to some extreme?
 
 "So, it's my turn and Itherael's next?" Auriel gazed at the text inscribed on the scroll and contemplated, "Hope will succumb to despair and destiny will be irrevocably shattered... So, am I to be consumed by a form of 'desperation'?"
 

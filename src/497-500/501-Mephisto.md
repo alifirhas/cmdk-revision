@@ -56,7 +56,7 @@ Mephisto stamped his walking cane to the ground bitterly, and said, "That's righ
 
 The reason for asking, Roy wanted to figure out the current time in the world of Diablo.
 
-"During this period, my brother Diablo once escaped the seal once!" Mephisto said "That's because he left behind a back hand, he has a daughter of human blood, with the help of this blood. He escaped from the seal and took the demons to counterattack the high-level heaven, but at the last moment when the crystal dome was about to be destroyed, he was stopped by the [3] Archangel Tyrael...now he was sealed in the Dark Soul Stone again..."
+"During this period, my brother Diablo once escaped the seal once!" Mephisto said "That's because he left behind a back hand, he has a daughter of human blood, with the help of this blood. He escaped from the seal and took the demons to counterattack the High Heaven, but at the last moment when the crystal dome was about to be destroyed, he was stopped by the [3] Archangel Tyrael...now he was sealed in the Dark Soul Stone again..."
 
 "Uh..." Roy was a little speechless. He always felt that Mephisto and his three brothers were really troubled in that world, always cycling in the path of being sealed, breaking the seal, and then being sealed again.
 
@@ -76,7 +76,7 @@ Mephisto squinted his eyes, and a golden-red light flashed by in those eyes. He 
 
 "Yes, the Red Sea Egg is with me!" Roy nodded. He knew that Mephisto said that, he could really detect the Red Sea Egg's breath "It seems that you are looking for me. The purpose, is this egg of the Red Sea?"
 
-"Yes!" Mephisto nodded, and said, "You may not know that the Red Sea Egg in your hand is actually Lilith's placenta! At least one of the placenta! Lilith used it to conceive nephalem/nephilim. It’s not heaven, so if you want to destroy those damn angel and demon hybrids, you must use the Red Sea Egg! Osiris, take it and go to that world with me. I promise you that it will be destroyed and captured in that world. After the high-level heaven, you will get the loot you deserve!"
+"Yes!" Mephisto nodded, and said, "You may not know that the Red Sea Egg in your hand is actually Lilith's placenta! At least one of the placenta! Lilith used it to conceive nephalem/nephilim. It’s not heaven, so if you want to destroy those damn angel and demon hybrids, you must use the Red Sea Egg! Osiris, take it and go to that world with me. I promise you that it will be destroyed and captured in that world. After the High Heaven, you will get the loot you deserve!"
 
 "You... want me to face Lilith?" Roy looked at him strangely and said, "Are you serious?"
 

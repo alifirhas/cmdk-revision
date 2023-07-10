@@ -30,21 +30,21 @@ So when he heard this, Dante became a little irritated and grabbed Sareth, rubbi
 
 Roy was noncommittal about Sparda's decision. He couldn't control what the world would become after he left, so he turned his head to look at Bayonetta and Jeanne.
 
-These two witches actually gave Roy the feeling that they were better than Sparda. After all, as the contractors, the witches and demons have more connections. Roy said, "Even the ancient angels, here is the kingdom of heaven. It should also be in contact with the high-level heaven. The archangel Jubileus has fallen. This is definitely a big event for the high-level heaven. Maybe it won’t be long before a new angel archangel will be sent to you. Come to the world, you witches will definitely become the biggest targets by then. Do you have any thoughts on this?"
+These two witches actually gave Roy the feeling that they were better than Sparda. After all, as the contractors, the witches and demons have more connections. Roy said, "Even the ancient angels, here is the kingdom of heaven. It should also be in contact with the High Heaven. The archangel Jubileus has fallen. This is definitely a big event for the High Heaven. Maybe it won’t be long before a new angel archangel will be sent to you. Come to the world, you witches will definitely become the biggest targets by then. Do you have any thoughts on this?"
 
 In fact, Bayonetta had been looking at Roy's current appearance before, and now she immediately shook her head when she heard this, and said, "It's not easy for those angels to kill us. You don't need to worry about this, but...if you can If you do, I hope to sign a contract with you, allowing me to borrow your power in this world."
 
 "Oh!?" Roy asked with interest "So, what price are you willing to pay?"
 
-"The price is the soul of a high-ranking angel!" Bayonetta said with her arms folded, "Trust me, even for a witch who has been in contact with the demon for a long time, a powerful demon like you is very difficult to meet, if you can be with you To reach a contract, I promise that every time I borrow your power, I will give you the souls of three high-level angels to you!"
+"The price is the soul of a high-ranking angel!" Bayonetta said with her arms folded, "Trust me, even for a witch who has been in contact with the demon for a long time, a powerful demon like you is very difficult to meet, if you can be with you To reach a contract, I promise that every time I borrow your power, I will give you the souls of three upper rank angels to you!"
 
 "Um..." Roy rubbed his chin with his thick fingers, thinking for a while.
 
-For Roy, the sacred soul of high-ranking angels is not very useful, because it can't satisfy the appetite, and can't be used to absorb and increase the magic power. He is different from those fanatical demons who take the task of destroying angels as their own. He lacks the sense of honor that belongs to the demon alone, but even if he can’t use it, the sacred soul of high-level angels is actually a resource. Now Roy has entered the Demon King level, he is also considered the top class in the abyss world. This type of resource may be possible. It might be used to exchange good things with other demon kings.
+For Roy, the sacred soul of high-ranking angels is not very useful, because it can't satisfy the appetite, and can't be used to absorb and increase the magic power. He is different from those fanatical demons who take the task of destroying angels as their own. He lacks the sense of honor that belongs to the demon alone, but even if he can’t use it, the sacred soul of upper rank angels is actually a resource. Now Roy has entered the Demon King level, he is also considered the top class in the abyss world. This type of resource may be possible. It might be used to exchange good things with other demon kings.
 
 "Yes!" Roy finally made a decision and said "I allow you to borrow my power in this world!"
 
-The next thing is logical. Roy and Bayonetta signed a power contract. The content of the contract stipulates that Bayonetta can only borrow Roy's power in this world, and this borrowing is hierarchical. Level, every tenth of the power, after borrowing once, Bayonetta must enshrine the souls of three high-level angels, and these souls are at least four-winged angels, and the 100% higher the borrowed power, The corresponding worship will also be doubled.
+The next thing is logical. Roy and Bayonetta signed a power contract. The content of the contract stipulates that Bayonetta can only borrow Roy's power in this world, and this borrowing is hierarchical. Level, every tenth of the power, after borrowing once, Bayonetta must enshrine the souls of three upper rank angels, and these souls are at least four-winged angels, and the 100% higher the borrowed power, The corresponding worship will also be doubled.
 
 If Bayonetta wants to borrow Roy's full power, then every time she borrows it, she needs to enshrine at least thirty sacred souls to Roy! This number is already a lot, even if the heavenly world here has a long history, it is difficult to gather so many four-winged angel souls...
 

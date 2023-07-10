@@ -8,9 +8,9 @@ Of course, it's not that it really takes that long. Roy and other steps to advan
 
 When he was just called to this world before, Roy left the Zakarum High Priest with a demon eye. Although these Zakarum believers belonged to Mephisto, this did not hinder the Roy uses them.
 
-After contacting the high priest of the Zakarum religion, Roy gave them an order. Roy order them lurking in various cities, mingle with ordinary people, waiting for an opportunity to provoke the relationship between humans and angels, To promote the attitude of high-level heaven, especially Imperius towards human beings and other good stuff. Whether they use public opinion or create conflict, in a word, try their best to make the relationship between humans and angels worse.
+After contacting the high priest of the Zakarum religion, Roy gave them an order. Roy order them lurking in various cities, mingle with ordinary people, waiting for an opportunity to provoke the relationship between humans and angels, To promote the attitude of High Heaven, especially Imperius towards human beings and other good stuff. Whether they use public opinion or create conflict, in a word, try their best to make the relationship between humans and angels worse.
 
-It is not only necessary to fan humans against angels, but also to fan angels against humans. If possible, try to attack some high-level heaven's stations in the Sanctuary as a human being.
+It is not only necessary to fan humans against angels, but also to fan angels against humans. If possible, try to attack some High Heaven's stations in the Sanctuary as a human being.
 
 In addition, Roy also gave a large amount of gold to the Zakarum believers. This gold is naturally the demon gold that Roy carried. The demon gold originally had the curse of bad luck, but Roy used the system to target it. Modifications.
 
@@ -29,7 +29,7 @@ In this way, Imperius, who had no good feelings for the Nephalems at first, will
 
 The high priest of Zakarum, who was already corrupted and depraved in his heart, did not have any resistance to Roy's order, but carried it out ecstatically.
 
-Everything is under Roy's control. If he sees this series of arrangements from a human perspective, he will definitely shudder, but in fact, Roy's original intention is not to target Nephalem. The real target is the high-level heaven!
+Everything is under Roy's control. If he sees this series of arrangements from a human perspective, he will definitely shudder, but in fact, Roy's original intention is not to target Nephalem. The real target is the High Heaven!
 
 As for the Nephalem race, Roy actually knows nothing better than to say, not to mention the Four Horsemen of the Apocalypse that he first came into contact with, but to say that he still has a adopted son Sareth who is also Nephalem. He knew very well that these Nephalems were actually not enemies to demons. As long as demons' bloodline prejudice aside, it could be said that it was easier for demons to accept them than for angels to accept them!
 
@@ -83,7 +83,7 @@ Roy stared at Mephisto for a moment and said, "If I read it right, Mephisto, you
 
 "Oh, that's not bad!" Roy nodded and said, "What else? If it's just the army, it's not worth your special trip."
 
-"There are two more things!" Mephisto also reached out and stroked his devil's horn and said "The first thing is, if you plan to completely defeat the high heaven, then there is one thing you need to be careful about. After the real defeat of the heaven side, it may lead to the appearance of the guardian Trag'Oul!"
+"There are two more things!" Mephisto also reached out and stroked his devil's horn and said "The first thing is, if you plan to completely defeat the High Heaven, then there is one thing you need to be careful about. After the real defeat of the heaven side, it may lead to the appearance of the guardian Trag'Oul!"
 
 "Trag'Oul?" Roy frowned suspiciously: "I seem to have heard this name somewhere..."
 
@@ -91,7 +91,7 @@ Roy stared at Mephisto for a moment and said, "If I read it right, Mephisto, you
 
 Roy nodded, yes, he remembered.
 
-"Trag'Oul, the guardian of the Sanctuary, is described in Rathma's book as a giant dragon, a giant dragon formed by the gathering of stars!" Mephisto said "She is with the Sanctuary. It appeared when the land was created, and even Inarius and Lilith, who created Sanctuary at the time, didn't know her existence, and we didn't know it at the beginning. It was only after the appearance of the Necromancer that we discovered this guardian, She rarely appears in front of the world. She is never interested in the war between angels and demons. She is only dedicated to guarding the balance of Sanctuary. This balance is likely to be broken when you capture the high heaven. At that time, she It is very likely that they will intervene!"
+"Trag'Oul, the guardian of the Sanctuary, is described in Rathma's book as a giant dragon, a giant dragon formed by the gathering of stars!" Mephisto said "She is with the Sanctuary. It appeared when the land was created, and even Inarius and Lilith, who created Sanctuary at the time, didn't know her existence, and we didn't know it at the beginning. It was only after the appearance of the Necromancer that we discovered this guardian, She rarely appears in front of the world. She is never interested in the war between angels and demons. She is only dedicated to guarding the balance of Sanctuary. This balance is likely to be broken when you capture the High Heaven. At that time, she It is very likely that they will intervene!"
 
 "Is Trag'Oul very powerful?" Roy asked.
 

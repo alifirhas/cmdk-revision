@@ -64,7 +64,7 @@ Nothing! So for Roy, the Demon World here can only be regarded as a third- and f
 
 After gaining a godhead and being promoted to the rank of Demon King, and successfully evolving into Chaos Demon, Roy’s past insecurity has been eliminated a lot. He knows that from now on, there are not many things that can threaten his life. After the insecurity is eliminated, it is replaced by the desire to explore the unknown.
 
-Does the abyss world have an end? How many realms does it connect? Where are the other archangels and demon kings? What is high-level heaven like? Does the creator of the angel and demon Titan really exist? What's the matter with the void?
+Does the abyss world have an end? How many realms does it connect? Where are the other archangels and demon kings? What is High Heaven like? Does the creator of the angel and demon Titan really exist? What's the matter with the void?
 
 After becoming a demon, Roy also accepted his identity. As a human being, his life was short, but as an immortal species like a demon, he has endless time. If he doesn’t do anything, how can he pass this long time?
 

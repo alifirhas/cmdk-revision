@@ -4,7 +4,7 @@ In the dark, deep and silent bottom world of the abyss, fragmented spaces move r
 
 Only when you enter these fragmented spaces will you know that there are different small worlds. Some of these small worlds may be as small as a few squares of land, but some can be large enough to accommodate several cities.
 
-The fragmented world at the bottom is a world that belongs to the survival of high-level demons alone. Those who can enter and leave here are at least at the high-level demon level. However, the high-level demons can only be regarded as residents here. The real ruler here is It's the demon lord!
+The fragmented world at the bottom is a world that belongs to the survival of upper demons alone. Those who can enter and leave here are at least at the upper demon rank. However, the upper demons can only be regarded as residents here. The real ruler here is It's the demon lord!
 
 No one knows how many demon lords exist in this fragmented world, but there is no doubt that every relatively large fragmented world may be the territory of a demon lord. The demon lords use their own powerful power. They protects these fragmented worlds, while at the same time fighting for territory with other demon lords openly and secretly. The winner is stronger and the loser dies. The cruel rules of the abyss world are also vividly reflected here and this over ten million years is the main melody in this fragmented world...
 
@@ -28,7 +28,7 @@ But in the very deep place below the surface, there is an uncharacteristically f
 
 The high temperature of the magma river can make preliminary refining of the ore. Impurities and soil will melt in the river, and the flares that can withstand the high temperature will emit a stronger red light and move slowly under the flow of the river. After arriving at the second location of the mine, there will be flying fire demon salvaging these flares. After loading the truck, the demon worm will pull it back to the surface and store it in the warehouse.
 
-This kind of mining looks orderly, and it is completely invisible that this is an ore mining base in charge of demons, but this is the case. Low-level demons are more obedient after being dominated by high-level demons. The other creatures are much taller, because they are used to executing the orders of high-level demons...
+This kind of mining looks orderly, and it is completely invisible that this is an ore mining base in charge of demons, but this is the case. Low rank demons are more obedient after being dominated by upper demons. The other creatures are much taller, because they are used to executing the orders of upper demons...
 
 Even during Roy’s absence, the mining work here has not been affected in any way, but recently the high-ranking demons who are responsible for guarding the warehouse are a little worried. The cause of this worries is the flares are about to be mined. The warehouse is full, but the lord has not yet returned. They don’t know whether to continue to expand the warehouse or find a way to trade these flares...
 

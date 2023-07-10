@@ -54,15 +54,15 @@ Now that he has calmed down again, he realizes that something is wrong, and his 
 
 So, why did he release himself? It's impossible to be confident enough in your own strength to deliberately add an archangel-level opponent to yourself, right?
 
-"This is a conspiracy!" Tyrael understood, looked at the bright soul stone and said "Osiris's purpose is a high-level heaven, but the high-level heaven is in the purgatory space, he is an alien demon, there is no way he has The spatial coordinates of the high-level heaven, so naturally it is impossible to directly tear open the space channel and invade the high-level heaven like Diablo... He let me out because he knew that I must go back to the high-level heaven. He wanted to track me, Find the location of the high heaven..."
+"This is a conspiracy!" Tyrael understood, looked at the bright soul stone and said "Osiris's purpose is a High Heaven, but the High Heaven is in the purgatory space, he is an alien demon, there is no way he has The spatial coordinates of the High Heaven, so naturally it is impossible to directly tear open the space channel and invade the High Heaven like Diablo... He let me out because he knew that I must go back to the High Heaven. He wanted to track me, Find the location of the High Heaven..."
 
 Tyrael looked at the bright soul stone in front of him with a complicated look, stretched out his hand, wanted to grab the soul stone, but then let go, and repeated this several times.
 
-He muttered to himself "This soul stone has the function of a beacon, if I take it away, it will inevitably reveal the coordinates of the high heaven, but if I don't take it away, this soul stone will become all angels A nightmare! Together with the war, the angel warriors who are killed will be imprisoned by the soul stone and will never be able to return..."
+He muttered to himself "This soul stone has the function of a beacon, if I take it away, it will inevitably reveal the coordinates of the High Heaven, but if I don't take it away, this soul stone will become all angels A nightmare! Together with the war, the angel warriors who are killed will be imprisoned by the soul stone and will never be able to return..."
 
 Tyrael closed his eyes, raised his head towards the top of the secret room, and felt extremely tangled in his heart, but after a while, Tyrael opened his eyes, stretched out his right hand, and grabbed the Soul Stone in his hand.
 
-After some ideological struggle, Tyrael's eyes were full of determination at this moment, he held the soul stone in his right hand, as if explaining, and as if to comfort himself "Even if I don't take the soul stone, Osiris still have other ways to find the way to the high heaven. I just delayed his plan, but I'll take the soul stone, and our warriors will return in the war!"
+After some ideological struggle, Tyrael's eyes were full of determination at this moment, he held the soul stone in his right hand, as if explaining, and as if to comfort himself "Even if I don't take the soul stone, Osiris still have other ways to find the way to the High Heaven. I just delayed his plan, but I'll take the soul stone, and our warriors will return in the war!"
 
 As soon as he turned around, Tyrael resolutely walked into the passage, bringing the soul stone with him.
 
@@ -70,7 +70,7 @@ Sure enough, when Tyrael came to the Demon King's Palace, he found that there wa
 
 Tyrael had both flukes and sighs in his heart. Luckily, he escaped no matter what, and sighed that he knew that this was Osiris's conspiracy, but he had to follow Osiris's routine. .
 
-"Such an artifact soul stone, it shouldn't be easy to make one. Osiris won't have a second one. I will bring it back to the high heaven and place it in the deepest part of heaven!" As he walked outside, he thought to himself, "Unless you break through the interception of our four archangels, don't even think about taking this soul stone back, Osiris!"
+"Such an artifact soul stone, it shouldn't be easy to make one. Osiris won't have a second one. I will bring it back to the High Heaven and place it in the deepest part of heaven!" As he walked outside, he thought to himself, "Unless you break through the interception of our four archangels, don't even think about taking this soul stone back, Osiris!"
 
 Leaving the Devil's Palace, Tyrael walked into the snowy mountains. The cruel natural environment did not have much impact on him, but he did not dare to show his angelic attitude and fly, for fear of disturbing the monsters in the snowy mountains. So he could only travel long distances and walk out of the snowy mountains on his own legs.
 

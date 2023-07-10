@@ -1,6 +1,6 @@
 # 516 - The First War Against Angels Led by Roy
 
-For the humans in the Sanctuary, most of the time, they are on the side of the high heaven.
+For the humans in the Sanctuary, most of the time, they are on the side of the High Heaven.
 
 The reason is simple, they are often persecuted and harassed by demons! Demons with a destructive and destructive nature are the natural enemies of all living things. When human beings are unable to resist powerful demons, they will naturally fall to the side of angels.
 
@@ -20,19 +20,19 @@ Archangel like Tyrael, what he sees is the greatness of human courage and self-s
 
 The difference in observation angle naturally determines the different attitudes of the archangels towards human beings.
 
-In fact, the high-level paradise has not been in a good state. After Malthael fell into an angel of death, he was killed by a group of Nephalem led by Tyrael. Imperius thought that Malthael was killed. After death, the soul will be purified and reshaped, and then it will come back again. As a result, the crystal dome has never been able to condense the soul of Malthael. Imperius is very worried about this and once thought that it was Diablo's **** who would be Malthael.
+In truth, the state of the High Heavens has been far from favorable. Following Malthael's transformation into the Angel of Death, he was eventually vanquished by a group of Nephalem led by Tyrael. Imperius initially presumed that Malthael's demise would lead to his soul being purified and subsequently reborn. However, to the High Heaven's concern, the Crystal Arch failed to recondense Malthael's soul. Imperius, troubled by this turn of events, briefly entertained the notion that Diablo's influence could somehow be connected to Malthael's fate.
 
-There is no news from Malthael, Tyrael has an accident again, a new Demon Lord has appeared in Sanctuary, Tyrael disappeared after fighting with each other, and has not returned until now, which is equivalent to The high-level heaven lost two archangels at once!
+There is no news from Malthael, Tyrael has an accident again, a new Demon Lord has appeared in Sanctuary, Tyrael disappeared after fighting with each other, and has not returned until now, which is equivalent to The High Heaven lost two archangels at once!
 
 As the leader of the Angiris Council, Imperius felt an unprecedented and urgent threat. Of course, he also knew that after the death of Malthael, the souls of Diablo and the other seven demon kings returned to the Hell of Flames. In a few years, or even decades, the Seven Demon Kings will make a comeback after regaining their strength.
 
-The three remaining archangels are already completely out of balance when dealing with the Seven Demon Kings. If the new Demon King is added, once the war comes again, the high-level heaven may really be destroyed.
+The three remaining archangels are already completely out of balance when dealing with the Seven Demon Kings. If the new Demon King is added, once the war comes again, the High Heaven may really be destroyed.
 
 Under such circumstances, the anxious Imperius certainly hopes to find Tyrael as soon as possible, as for those Nephalem...
 
-In the new meeting, I hope that Archangel Auriel also mentioned this matter. As the only female angel in the high heaven, Auriel also has a good impression of the humans in the Sanctuary, so she hopes Imperius can change his attitude, let go of his prejudice against human beings, and spread the doctrine of light in the world on a larger scale, in the hope of making better use of the power of the Nephalem in the future war with **** demons.
+During the upcoming meeting, I wish that Archangel Auriel addresses this issue as well. As the only female angel within the High Heavens, Auriel holds a favorable view of the denizens of Sanctuary. She earnestly desires Imperius to alter his view, releasing his prejudice against humanity. Auriel advocates for the widespread dissemination of the doctrine of light, aiming to harness the potential of the Nephalem's power in future conflicts against the demonic hordes of Hell.
 
-Imperius doesn't know this? Of course he knows! When Diablo entered the high-level heaven, he also saw how powerful the nephalems who started to regain their strength, but the problem was that he was quite entangled with these powerful nephalems!
+Imperius doesn't know this? Of course he knows! When Diablo entered the High Heaven, he also saw how powerful the nephalems who started to regain their strength, but the problem was that he was quite entangled with these powerful nephalems!
 
 As for why the entanglement is involved, it involves a mystery of Sanctuary. About three thousand years ago, when the world of Sanctuary was just discovered by heaven and hell, Lilith had already been discovered by heaven and hell. Inarius was banished to the Void, and both Heaven and Hell recklessly developed religion in the world of Sanctuary, hoping to develop power through the lever of Sanctuary in order to overwhelm each other.
 
@@ -62,7 +62,7 @@ After the war, the Angiris Council negotiated with Mephisto to decide the fate o
 
 After the survival rights of mortals were ensured, the Angiris Council and the lords of the Burning Hell reached a ceasefire agreement, and both agreed that the power of the Burning Hell and the High Heaven would not interfere with the mortal world. Human beings could decide their own destiny, as this agreement In one of the terms, Inarius was handed over to the demons, who tortured him for eternity.
 
-Uldyssian's sacrifice has won a living space for mankind. It can be said that he is called a sage by the world. However, the power released by Uldyssian when he finally expelled the angels and demons also made both angels and demons very uncomfortable. Horrible, in order to prevent similar things from happening again, heaven and **** have tacitly passed an agreement, that is, to seal all the memories of mortals about this war, so this was originally called the 'War of Original Sin' The war was completely lost in the historical records of mankind...
+Uldyssian's selfless sacrifice secured a realm for humanity to flourish, earning him the esteemed title of a sage in the eyes of the world. Nevertheless, the overwhelming power unleashed by Uldyssian upon vanquishing angels and demons alike left both celestial and infernal beings unsettled. Fearing the recurrence of such events, Heaven and Hell tacitly agreed upon a pact—to seal away all mortal recollections pertaining to this war. Consequently, the conflict once known as the "War of Original Sin" vanished entirely from mankind's historical annals, lost to the ages.
 
 Among the mortals, there is only one person who still remembers this war, remembers Uldyssian, that is the one who left his hometown with Uldyssian, his brother Mendeln... But Mendeln was not in the attention of angels and demons at that time.
 
@@ -76,7 +76,7 @@ Therefore, Auriel could only acquiesce to Imperius' decision.
 
 It's just that they didn't know that this decision completely ruined the chance for High-Order Heaven to finally win over the Nephalem...
 
-The estrangement between the high-level paradise and the mortal world of the Sanctuary makes them very slow to respond to various information in the mortal world. Just when the angels are still living a long and boring life as always, the situation in the Sanctuary world is not. more and more intense.
+The estrangement between the High Heaven and the mortal world of the Sanctuary makes them very slow to respond to various information in the mortal world. Just when the angels are still living a long and boring life as always, the situation in the Sanctuary world is not. more and more intense.
 
 Due to Roy's decision to hide behind the scenes, the mortals in Sanctuary have not suffered from demons for a long time.
 
@@ -96,7 +96,7 @@ In this way, it is a bad dish. Now that the idea of ​​​​groups is on the
 
 In just half a year, an astonishing number of churches have been burned down in various countries in the Land of Sanctuary. A large number of church personnel have been turned into prisoners and exiled, and the voice of expelling the Church of the Holy Light has been loud.
 
-After the high-level heaven found out, things were completely out of control, and the high-level heaven could no longer tell who was behind the scenes.
+After the High Heaven found out, things were completely out of control, and the High Heaven could no longer tell who was behind the scenes.
 
 Imperius knew that if these events could not be stopped quickly, the high heavens would completely lose the faith of mortals, but Imperius, who was embarrassed and aged, made a wrong decision on this matter.
 
@@ -106,15 +106,15 @@ Ordinary angels have always been disgusted by the Nephalems who already have dem
 
 The Nephalem people realize that even if the shadow of the demon has disappeared, the existence of angels is still a big mountain pressing on their heads. If human beings want to win an independent living space, then whether they are demons or angels, they must be expelled. Object.
 
-As a result, the Nephalem people began to resist the high-level heaven. Now they have powerful powers, they can also suppress the army of angels in turn. They began to gain pleasure from beheading these angels who used to symbolize light...
+As a result, the Nephalem people began to resist the High Heaven. Now they have powerful powers, they can also suppress the army of angels in turn. They began to gain pleasure from beheading these angels who used to symbolize light...
 
 The irritated Imperius didn't stop Auriel's advice at all. Anyway, there was no demon to disturb him. He simply led the army and directly invaded the world of Sanctuary... In this way, Roy came to the fifth place in this world. Year, the war between humans and angels begins!
 
 The history of this world, because of Roy's appearance, has completely moved to an unknown turning point...
 
-As for Roy himself, he is silently accumulating the power of the demon. He has now completely become the spokesperson of the flaming hell. During the period when the Seven demons have not returned, he is the supreme leader of the entire flaming hell. The army of millions of demons is ready to go, just waiting for Roy's order, they will completely destroy the entire high-level heaven under the leadership of Roy, kill all the angels, and completely end the eternity of this world. battle.
+As for Roy himself, he is silently accumulating the power of the demon. He has now completely become the spokesperson of the flaming hell. During the period when the Seven demons have not returned, he is the supreme leader of the entire flaming hell. The army of millions of demons is ready to go, just waiting for Roy's order, they will completely destroy the entire High Heaven under the leadership of Roy, kill all the angels, and completely end the eternity of this world. battle.
 
-Of course, this is just the idea of ​​the demons, but they don't know what Roy is really thinking. With so many troops, Roy is not only guarding against high-level heaven, but more is actually guarding against Lilith...
+Of course, this is just the idea of ​​the demons, but they don't know what Roy is really thinking. With so many troops, Roy is not only guarding against High Heaven, but more is actually guarding against Lilith...
 
 Although Mephisto's warning is mixed, Roy believes that Lilith's return should be true. Through his historical interpretation of this world, Roy estimated that Lilith in this world is afraid of being caught. Exiled into the void for thousands of years!
 
@@ -140,7 +140,7 @@ Moreover, in the eternal war, the war between angels and demons is also to a lar
 
 The reason why he is so interested in the Worldstone is because Roy feels that this thing is probably a legacy of the creator!
 
-Yes, Roy felt that it should be the real legacy of the creator, not the legend of the so-called creation **** Anu's eyes.
+Yes, Roy felt that it should be the real legacy of the creator, not the legend of the so-called creation God Anu's eyes.
 
 As far as Roy knows at present, among the items related to the legacy of the creator, one is the demon's Bible stone tablet left in the abyss world, the other is the true book of heaven, and the other is Lilith's Red Sea Egg (suspected). The creator-like relics contain some kind of magical power, which are the traces and imprints left by the creator when he created thousands of worlds.
 

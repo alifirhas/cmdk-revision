@@ -42,7 +42,7 @@ Auriel replied "It's just less than a second! When you launched an attack, Ither
 
 Auriel couldn't feel what Imperius felt just now, and asked curiously, "Is it really that scary?"
 
-"Trust me! Feeling of death is more heartwarming than that!" Imperius said as he ignited the holy flame again. After leaving the absolute zero space, the holy flame on his body also turned the frost on his armor. Dispersed, but after the black ice crystals fell off, Imperius noticed that his armor had been damaged. Under the extreme cold, even if it was forged in the high-level heaven holy light forge, The incomparably sturdy Archangel armor also had numerous tiny cracks, and these cracks were almost all over the body.
+"Trust me! Feeling of death is more heartwarming than that!" Imperius said as he ignited the holy flame again. After leaving the absolute zero space, the holy flame on his body also turned the frost on his armor. Dispersed, but after the black ice crystals fell off, Imperius noticed that his armor had been damaged. Under the extreme cold, even if it was forged in the High Heaven holy light forge, The incomparably sturdy Archangel armor also had numerous tiny cracks, and these cracks were almost all over the body.
 
 Fortunately, using the power of authority, Imperius can draw endless magic to repair the armor, it just takes a little time.
 
@@ -90,15 +90,15 @@ But now is not the time to pursue these things. When he saw Auriel nodding to hi
 
 However, before the two could launch an attack, they saw Roy, who had not moved much, slowly raised his arms. When the huge misty body made this action, the mist that was stirred up like ink flowed again.
 
-"It's done!" Roy's soft voice rang out and then he saw that in all directions around the entire Silver City, a large number of demon children with small wings suddenly appeared in all directions!
+"It's done!" Roy's soft voice rang out and then he saw that in all directions around the entire Silver City, a large number of Imps with small wings suddenly appeared in all directions!
 
-These demon children are the ones that he kept spreading out just now. The reason why he has been passively defending against Imperius and Tyrael's attacks is that he is arranging and spreading these demon children.
+These Imps are the ones that he kept spreading out just now. The reason why he has been passively defending against Imperius and Tyrael's attacks is that he is arranging and spreading these Imps.
 
-Attacking the high-level paradise is not Roy's job alone and he is not arrogant enough to think that he can attack the high-level paradise alone. After he entered the high-level paradise alone, he just stabilized his feet first.
+Attacking the High Heaven is not Roy's job alone and he is not arrogant enough to think that he can attack the High Heaven alone. After he entered the High Heaven alone, he just stabilized his feet first.
 
-Now, with the completion of the arrangement of the demon children, it is time for the war to enter the next step.
+Now, with the completion of the arrangement of the Imps, it is time for the war to enter the next step.
 
-A large number of demon children with wings are scattered all over the battlefield. After receiving Roy's magic power transmission, these demon children radiated bursts of light, the light continued to spread, and the portals were also destroyed.
+A large number of Imps with wings are scattered all over the battlefield. After receiving Roy's magic power transmission, these Imps radiated bursts of light, the light continued to spread, and the portals were also destroyed.
 
 "Open it up!"
 
@@ -106,4 +106,4 @@ Ten, hundreds, thousands, or even tens of thousands of portals opened at the sam
 
 When the first demon jumped out of the portal, demons jumped out from all the portals one after another. In less than ten seconds, all the portals started to pour out like dumplings and kept spitting out Demon army...
 
-In just a moment, hundreds of thousands of demon armies have invaded the high-level heaven, and the bell of war has been sounded...
+In just a moment, hundreds of thousands of demon armies have invaded the High Heaven, and the bell of war has been sounded...

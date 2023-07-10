@@ -26,7 +26,7 @@ But...it seems something is wrong... Tyrael carefully read the description in th
 
 When Tyrael felt puzzled, another piece of new information was sent over. Tyrael took a look and found that it was another report of a member of the Horadrim Brotherhood who frustrated the sacrifice ceremony. The difference between the report is that the reporter actually recorded the scene with a photo-taking stone and sent it together.
 
-Through this picture stone, Tyrael finally saw the scene of the scene. As a high-level archangel, he is naturally proficient in various demonic languages ​​and characters. After he carefully identified the magic circle in the picture, gradually His face became more and more surprised.
+Through this picture stone, Tyrael finally saw the scene of the scene. As a upper rank archangel, he is naturally proficient in various demonic languages ​​and characters. After he carefully identified the magic circle in the picture, gradually His face became more and more surprised.
 
 "Holy light is on! This...this ritual wants to summon, it is not Mephisto, King of Hatred!?" Tyrael's eyes widened "It's...but a demon outside the territory!?"
 
@@ -42,11 +42,11 @@ Regardless of the beliefs held by the members of the Horadrim Brotherhood, Tyrae
 
 Because in his impression, he didn't seem to have heard the name of a demon king like this...
 
-"Perhaps, I should return to the high-level heaven..." Tyrael calculated "There is a projection of the Book of Truth from the Garden of Eden in the high-level heaven. Maybe I can find the origin of this demon from the book of truth..."
+"Perhaps, I should return to the High Heaven..." Tyrael calculated "There is a projection of the Book of Truth from the Garden of Eden in the High Heaven. Maybe I can find the origin of this demon from the book of truth..."
 
 As the realization dawned on him, Tyrael swiftly embarked on his journey back to the High Heavens. Following the conflict with Malthael, Tyrael's relationship with the Archangel of Valor, Imperius, had gradually improved. Considering the circumstances, there might be a chance to consult the Book of Truth and uncover information about... Baal.
 
-However, what Tyrael didn't know was that during the time he was on his way to high-level heaven, the world of Sanctuary had undergone tremendous changes.
+However, what Tyrael didn't know was that during the time he was on his way to High Heaven, the world of Sanctuary had undergone tremendous changes.
 
 In accordance with his directives, the Horadrim Brotherhood dispatched a substantial force to eradicate the followers of Zakarum. Naturally, many descendants of the Nephalem joined their ranks. However, as one of the smaller Nephalem groups stumbled upon a gathering site of the Zakarum cultists, they soon realized they had unwittingly walked into an elaborate trap.
 

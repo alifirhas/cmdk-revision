@@ -14,7 +14,7 @@ Because the spear of courage in his hand has been completely bent...
 
 It is not broken, but it is bent at a 90-degree angle, which is no different from being broken, which means that Imperius cannot use this archangel weapon temporarily until it is repaired.
 
-If it's just temporarily unavailable, it's not a big deal for Imperius, but the problem is that his weapon, already broke once! It was the time when Diablo gathered the power of the Seven Demon Kings to enter the high heaven, the spear of courage was damaged by Diablo and Imperius spent a lot of effort to recast the spear of courage. It didn't take long for Roy's fist to give it a damage again...
+If it's just temporarily unavailable, it's not a big deal for Imperius, but the problem is that his weapon, already broke once! It was the time when Diablo gathered the power of the Seven Demon Kings to enter the High Heaven, the spear of courage was damaged by Diablo and Imperius spent a lot of effort to recast the spear of courage. It didn't take long for Roy's fist to give it a damage again...
 
 The most vexing issue lies in the constant damage inflicted upon Roy's fist. In other words, while Imperius does not require a spear of courage to be re-forged, he must find a means to realign the spear's shaft, ensuring perfect synchronicity with himself. Even the slightest deviation in curvature would impair the tactile feedback he receives when wielding it.
 
@@ -108,9 +108,9 @@ The previous time was just a guess, but this time it was completely confirmed th
 
 After there was no problem with his own safety, Roy heaved a sigh of relief and began to try to explore this void.
 
-In fact, because the devil children scattered in the high-level heaven are related to Roy himself, this is a system creation after all, and the attribute definition given by Roy can't even completely erase the isolation of the void. Tt is only possible Because he is in the depths of the void, this connection has become very weak now.
+In fact, because the devil children scattered in the High Heaven are related to Roy himself, this is a system creation after all, and the attribute definition given by Roy can't even completely erase the isolation of the void. Tt is only possible Because he is in the depths of the void, this connection has become very weak now.
 
-Although it is weak, it also means that Roy still holds the coordinates of the material world. As long as he finds a way to walk in the void and find a place closer to the material world, he can sacrifice a demon child to let the demon The child exchanges his position with his own, so that he can return to the material world.
+Although it is weak, it also means that Roy still holds the coordinates of the material world. As long as he finds a way to walk in the void and find a place closer to the material world, he can sacrifice an Imp to let exchanges Imp position with his own, so that he can return to the material world.
 
 This is the way to escape from the void. In fact, it is not just him, other people who have been exiled to the void can also return through a similar method. Of course, the premise is that they can also have a way to hold the void like Roy. Having the ability to Fight Erosion and the ability to "swim" from the depths of the void back to the fringes of the material world with the loss of all senses...
 
@@ -118,7 +118,7 @@ It's not easy to do this. There is no sense of direction in the void. You don't 
 
 So far, in the world of Sanctuary, or the world of Diablo, there is only one recorded case that has returned from the void, and that is Lilith!
 
-No one knows what method Lilith came back through, but there is a precedent for her return, so the archangels of the high heaven did not take the method of exile in the void against their old rivals, the Seven Demon Kings, Instead, he chose to use the dark soul stone for soul imprisonment.
+No one knows what method Lilith came back through, but there is a precedent for her return, so the archangels of the High Heaven did not take the method of exile in the void against their old rivals, the Seven Demon Kings, Instead, he chose to use the dark soul stone for soul imprisonment.
 
 As for Roy, if Auriel had not seen the 'miracle' of exile through her authority, Tyrael and Itherael would not have used this method. It's useless to Roy, the only way to cause trouble for Roy is to exile...
 
@@ -140,7 +140,7 @@ To be honest, since becoming a chaotic demon, Roy has rarely used the system int
 
 Yes, Roy did not choose to make any item this time, but chose to perform an evolution, he added an eye to himself, a huge eye!
 
-The position of this eye was placed by Roy on his chest. There was a vertical row of thorns in the middle of his chest. When the thorns were opened to the left and right, they would A huge eyeball was exposed in the center. This eyeball was not like the previous demon children, but a pure black crystalline eyeball.
+On Roy's chest, a peculiar ocular feature was positioned. A vertical row of thorns adorned the middle of his chest, capable of parting to reveal a massive eyeball at the center. Unlike his previous third eye, this particular ocular manifestation took the form of a pure black crystalline sphere, brimming with an eerie presence.
 
 [Eye of the Void]
 

@@ -6,7 +6,7 @@ Sharpening knives without chopping firewood, Roy's harvest is quite large, he ca
 
 In addition to the soul stone that originated from the worldstone and was produced by the first Horadrim Church, there is another reason that cannot be ignored, and that is the worldstone.
 
-This Worldstone, believed to be a transformed essence of the creator, Anu, was initially housed atop Mount Arreat in Sanctuary after it was stolen from the High Heavens by Inarius. Since Sanctuary is an artificially created realm, it lacks inherent world will. However, when Inarius placed the Worldstone on the summit of Mount Arreat, it unexpectedly assumed a different role. Instead of possessing the will of the world, the Worldstone gained the ability to repel and diminish any angels or demons entering Sanctuary from the realms of purgatory beyond.
+This Worldstone, believed to be a transformed essence of the creator, God Anu, was initially housed atop Mount Arreat in Sanctuary after it was stolen from the High Heavens by Inarius. Since Sanctuary is an artificially created realm, it lacks inherent world will. However, when Inarius placed the Worldstone on the summit of Mount Arreat, it unexpectedly assumed a different role. Instead of possessing the will of the world, the Worldstone gained the ability to repel and diminish any angels or demons entering Sanctuary from the realms of purgatory beyond.
 
 After all, Inarius defected at the beginning, and he didn't want Sanctuary to be discovered by the High Heavens, as did Lilith. So they used the power of the Worldstone to block the Sanctuary as a whole.
 
@@ -28,7 +28,7 @@ The power of the demons is no longer suppressed. It is said that Mephisto and th
 
 Consequently, the inhabitants of this world began to reclaim the ancient wisdom embedded within their blood and souls. They delved into the depths of profound elemental and arcane knowledge, harnessing these hidden forces to unlock greater power. Step by step, they advanced towards the prowess of the first generation of Nephalem, drawing closer to the legendary abilities of their ancestors with each passing day.
 
-Diablo, who took advantage of the destruction of the Worldstone and took the opportunity to make a comeback, just happened to hit such an era of nephalem aura recovery, even if he once led an army of demons into the high-level heaven, even suffered heavy losses. The Archangel Imperius of Courage turned the high heaven into a sea of ​​fire, but with the help of the Nephalem who recovered his powerful strength, Diablo was still defeated and sealed again. In the soul stone...
+Diablo, who took advantage of the destruction of the Worldstone and took the opportunity to make a comeback, just happened to hit such an era of nephalem aura recovery, even if he once led an army of demons into the High Heaven, even suffered heavy losses. The Archangel Imperius of Courage turned the High Heaven into a sea of ​​fire, but with the help of the Nephalem who recovered his powerful strength, Diablo was still defeated and sealed again. In the soul stone...
 
 When Roy saw this record in the book of the New Horadrim Church, he couldn't help but scolded Diablo with an MMP!
 
@@ -60,9 +60,9 @@ Roy finally started to move, but little did he know that a group of people had b
 
 This group of people is the New Horadrim Brotherhood!
 
-Tyrael finally came back from the high heaven. He brought back the book of truth stored in the high heaven. Although this book is only a projection, it still connects all the strongholds of heaven in the world. The angels are there. The names of powerful demons encountered on various battlefields will be recorded in the Book of Truth. This is a special way for angels to seek demons. Once a dangerous and powerful demon escapes to a certain world, the world's Angels are obliged to kill them.
+Tyrael finally came back from the High Heaven. He brought back the book of truth stored in the High Heaven. Although this book is only a projection, it still connects all the strongholds of heaven in the world. The angels are there. The names of powerful demons encountered on various battlefields will be recorded in the Book of Truth. This is a special way for angels to seek demons. Once a dangerous and powerful demon escapes to a certain world, the world's Angels are obliged to kill them.
 
-Obviously, as a powerful demon who has turned over many high-level angels, Roy's name is on the list in the Book of Truth, but unfortunately, because Roy is rising too fast, let alone heaven. Now, even the demons in the abyss world don't know much about Roy, so there is only Roy's single name on the book of truth, that is, the name **Osiris**. Some of Roy's power characteristics, such as the black ice power he uses, but there is no explanation for Roy's origin and bloodline.
+Obviously, as a powerful demon who has turned over many upper rank angels, Roy's name is on the list in the Book of Truth, but unfortunately, because Roy is rising too fast, let alone heaven. Now, even the demons in the abyss world don't know much about Roy, so there is only Roy's single name on the book of truth, that is, the name **Osiris**. Some of Roy's power characteristics, such as the black ice power he uses, but there is no explanation for Roy's origin and bloodline.
 
 It's just a single name, even if it's part of the devil's real name, it doesn't work. It's natural to want to attack Roy's soul by reciting the devil's real name, so Tyrael's first investigation of Roy, reached a deadlock.
 

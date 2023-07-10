@@ -2,7 +2,7 @@
 
 When the light reappeared in Roy eyes, the eye of the void on Roy's chest slowly closed. This eye of the void is only an auxiliary organ and it can only function in a void environment. The void symbol in the wings behind him The lines of text have also lost their radiance, all of which signify that Roy has returned to the material world.
 
-"Ah, the material world is better!" Roy sighed, then looked down, stretched out his hand and used his sharp index finger and thumb nail to twist up a nearby high-level demon. The high-level demon was about two meters high, but In front of Roy's misty body, he looked so short. He was grabbed by the back of his neck and hung in the air by Roy. He didn't dare to move at all.
+"Ah, the material world is better!" Roy sighed, then looked down, stretched out his hand and used his sharp index finger and thumb nail to twist up a nearby upper rank demon. The upper rank demon was about two meters high, but In front of Roy's misty body, he looked so short. He was grabbed by the back of his neck and hung in the air by Roy. He didn't dare to move at all.
 
 "How long have I been away?" Roy asked him.
 
@@ -60,7 +60,7 @@ Roy, in turn, shrunk the misty body to a height of more than three meters, then 
 
 "Why!? Why can you come back from the void!?" Tyrael asked angrily loudly while fighting Roy "What kind of demon are you!?"
 
-"Why are you so angry?" Roy grinned and slammed his sword on his sword, smashing him several meters away.Then Roy rushed up, Frostmourne slashed at Tyrael's light wings, saying "You guys It should be understood that since I dare to enter the high-level heaven alone, it is natural for me to rely on me! Don't you still think that I am bluffing?"
+"Why are you so angry?" Roy grinned and slammed his sword on his sword, smashing him several meters away.Then Roy rushed up, Frostmourne slashed at Tyrael's light wings, saying "You guys It should be understood that since I dare to enter the High Heaven alone, it is natural for me to rely on me! Don't you still think that I am bluffing?"
 
 "Damnit! In the name of justice, I must defeat you!" Tyrael avoided Roy's slash, waved his light wings and launched countless holy light bullets at Roy, but Roy's body suddenly disintegrated and turned into countless fist-sized individuals. All of these individuals were exactly the same as Roy's. With the help of the clone of the Heart of the Swarm, none of the holy light bullets that Tyrael shot densely hit, all of which were dodge by Roy.
 
@@ -82,9 +82,9 @@ Hearing his words, Roy paused the attack, took back all the clones of the swarm,
 
 This is indeed the case. Since Roy's arrival, he has never dealt with the Nephalem people in the Sanctuary. On the island of Xiansai where he lives, people on the island don't even know of his existence. There was a lot of demon gold flowing out of it, but the demon gold just magnified the evil thoughts in the hearts of mortals, and it had nothing to do with Roy himself, and the cause and effect could not actually implicate him.
 
-After he came to this world, there were only two things he really did. One was to imprison Tyrael's soul and the other was to lead the demon army into the high heaven.
+After he came to this world, there were only two things he really did. One was to imprison Tyrael's soul and the other was to lead the demon army into the High Heaven.
 
-This is where Tyrael is puzzled. It is said that breaking into the high-level heaven is already considered evil... What went wrong in the end!?
+This is where Tyrael is puzzled. It is said that breaking into the High Heaven is already considered evil... What went wrong in the end!?
 
 Roy perceived Tyrael's lingering uncertainty and grinned mischievously. "Tyrael, do you not find it contradictory that attacking your own angels is considered evil? Well, it seems your sword doesn't share that sentiment! In this world, the notion of justice upheld by your higher realms of heaven appears to be quite questionable!"
 
@@ -110,7 +110,7 @@ After speaking, Roy also nodded and admitted generously "Yes, it is different fr
 
 "What am I lying to you for? Is there any benefit?" Roy glanced at him angrily and said, "That is my adopted son Sareth, in another world, he is called the dark messiah. In that world, whether it is an angel, a human, or a demon, everyone wants to kill him. I brought him back to the abyss world and raised him... Sareth is a good boy, but the abyss world is not very suitable for him, where he will only be a demon in the end, and he should have more options... He is still young, but he will always grow up, the world of Sanctuary is full of nephalems, so it counts It's his countryman, maybe he can live unfettered in this world..."
 
-"...Understandable!" Tyrael took a deep breath and said "Whether you are deceiving me or not, I also understand the reason why you attacked the high heaven you want to expel all the angels Without the angels, the eternal battle will be over, and the seven demon kings and demons can also return to the abyss world, and you, with your great record of conquering the high heaven, can protect the world of Sanctuary from the hands of the seven demon kings?"
+"...Understandable!" Tyrael took a deep breath and said "Whether you are deceiving me or not, I also understand the reason why you attacked the High Heaven you want to expel all the angels Without the angels, the eternal battle will be over, and the seven demon kings and demons can also return to the abyss world, and you, with your great record of conquering the High Heaven, can protect the world of Sanctuary from the hands of the seven demon kings?"
 
 "Basically!" Roy nodded and said, "If Mephisto and the other old men disagree, maybe I might have a fight with them..."
 

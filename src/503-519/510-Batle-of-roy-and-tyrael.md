@@ -2,7 +2,7 @@
 
 Rakkis's tomb, located deep underground, is the burial ground of a general who was famous in the history of Sanctuary.
 
-This is the place where the Dark Soul Stone was previously stored. Since the Dark Soul Stone imprisoned the souls of the Seven Demon Kings, the Dark Soul Stone at that time exuded an evil breath all the time, even angels may be polluted and contaminated by these evil breaths. Corruption, which made Tyrael unable to place the dark soul stone in the high heaven to guard, as a last resort, he could only find the tomb of Rakkis in the Sanctuary, which was used to place the dark soul stone.
+This is the place where the Dark Soul Stone was previously stored. Since the Dark Soul Stone imprisoned the souls of the Seven Demon Kings, the Dark Soul Stone at that time exuded an evil breath all the time, even angels may be polluted and contaminated by these evil breaths. Corruption, which made Tyrael unable to place the dark soul stone in the High Heaven to guard, as a last resort, he could only find the tomb of Rakkis in the Sanctuary, which was used to place the dark soul stone.
 
 Now, there is one more thing in this tomb, and that is the imitation of Kanai's box.
 

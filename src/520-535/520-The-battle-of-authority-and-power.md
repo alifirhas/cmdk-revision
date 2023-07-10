@@ -2,7 +2,7 @@
 
 "Shut up! Demon!"
 
-Hearing that Roy actually said that he was a thief, Tyrael couldn't help it. He pointed at Roy with the holy sword and said, "Even though I can't see your plan, this soul stone isn't your intention at all. Now, although you got your wish to find your soul stone and found the position of the high heaven, don't even think about taking the soul stone back! In the name of high heaven, we will judge you!"
+Hearing that Roy actually said that he was a thief, Tyrael couldn't help it. He pointed at Roy with the holy sword and said, "Even though I can't see your plan, this soul stone isn't your intention at all. Now, although you got your wish to find your soul stone and found the position of the High Heaven, don't even think about taking the soul stone back! In the name of High Heaven, we will judge you!"
 
 "Tsk tsk, it's this kind of speech that stands on the high point of morality! You angels are always like this..." Roy shook his finger "Tyrael, although you used to be called an archangel of justice, you really does not represent justice! In my opinion, the fight between angels and demons is not a fight between justice and evil, but just a boring fight... Look at the current situation in Sanctuary, the angels are fighting against each other. The Nephalems committed murder, even if you really claim to be righteous, tell me then, will you judge the culprit for this murder, your brother Imperius?"
 
@@ -12,7 +12,7 @@ Hearing that Roy actually said that he was a thief, Tyrael couldn't help it. He 
 
 "Shut up!" Seeing Tyrael's speechless appearance, Imperius stood up and scolded "Demon, we are not here to argue with you! Tyrael, can't you see? Come out, he's just provoking us!"
 
-Tyrael also reacted, shaking his head and said "Indeed, this is an internal problem of our high-level heaven, I will not listen to your provocation!"
+Tyrael also reacted, shaking his head and said "Indeed, this is an internal problem of our High Heaven, I will not listen to your provocation!"
 
 As a result, when Imperius heard this, his nose was about to crook (if he had any) what is our internal problem? Could it be that you really want to judge me after the fact?
 
@@ -24,9 +24,9 @@ There was a sound of clang and the falling light turned into a huge golden spear
 
 This is Imperius' archangel weapon, called **Solarion**! Gun of Courage! It is about three meters long, and the spear tip is double-edged, similar to the shape of a double-strand fork, but it is closed together, like the tip of a sword. The spear body is covered with exquisite patterns, and the gaps between the patterns are engraved with sacred runes, the powerful Holy Light power fills the entire gun, making these runes sparkle.
 
-Imperius stretched out his hand, pulled the spear of courage from the ground, and pointed the spear at Roy with one hand "Come on, demon! No matter who you are, you will have to pay blood for trespassing in high heaven at all cost!"
+Imperius stretched out his hand, pulled the spear of courage from the ground, and pointed the spear at Roy with one hand "Come on, demon! No matter who you are, you will have to pay blood for trespassing in High Heaven at all cost!"
 
-Imperius's movements are the signal. Behind him, Angle of Hope - Auriel also showed her weapon. She held an angel sword in her right hand and an angel spear in her left hand. Swords are only standard weapons of high-level heaven. Her real archangel weapon is actually wrapped around her hands and arms, the streamer called **Al'maiesh**, also known as the 'Cord of Hope'! This long silk-like cord is usually wrapped around Auriel's body, and it is even part of Auriel's hood.
+Imperius's movements are the signal. Behind him, Angle of Hope - Auriel also showed her weapon. She held an angel sword in her right hand and an angel spear in her left hand. Swords are only standard weapons of High Heaven. Her real archangel weapon is actually wrapped around her hands and arms, the streamer called **Al'maiesh**, also known as the 'Cord of Hope'! This long silk-like cord is usually wrapped around Auriel's body, and it is even part of Auriel's hood.
 
 As for Angel of Destiny Itherael, his weapon is the **Talus'ar** in front of him, the scroll of destiny! He didn't show much of a fighting stance, but the scroll of destiny also became a lake beside him. The original golden scroll turned into a variety of weapons, and there was no fixed form.
 

@@ -8,7 +8,7 @@ In the abyssal world, there are trillions of demons living, but only a dozen can
 
 Unlike Roy, the demon king who just came to power, the second generation of demon kings have existed in the abyss world for a long, long time. This long time is at least calculated in units of ten thousand years. In such a long time, this The second-generation demon kings of the second generation naturally also gained a reputation among the ten thousand realms. Their resounding names are not only spread in the abyss world, but also spread throughout the human world and the heavens.
 
-The angels of high-level heaven always don't want to kill these demon kings all the time, but unfortunately, in the same long eternal battle, both sides will win each other and can only maintain a delicate balance.
+The angels of High Heaven always don't want to kill these demon kings all the time, but unfortunately, in the same long eternal battle, both sides will win each other and can only maintain a delicate balance.
 
 As a result, with the passage of time, the achievements of the second generation of demons have also given them new titles.
 
@@ -20,7 +20,7 @@ Among the thirteen great demon kings recognized by the abyss world, they all occ
 
 However, in the last few thousand years, it has been difficult to see these seven new sin kings in the abyss world. It is said that among the news spread by the demons, these seven new sin kings seem to have fallen into a super high world. It's hard to get out, and stuck directly...
 
-Arriving at the ranks of the demon king, it is almost impossible to kill the soul forever, but it is difficult to be killed, but it does not mean that it will not be sealed. If the demon kings encounter powerful archangel high-level enemies, it might not be possible. It’s also going to roll over. The Abyss World once had the Demon King being sealed by a single seal for tens of thousands of years. Therefore, even if it is difficult to see the traces of the activities of a few new Sin Demon Lords in the Abyss World, the demons did not think it was a big deal. After all, they still have to live their respective lives.
+Arriving at the ranks of the demon king, it is almost impossible to kill the soul forever, but it is difficult to be killed, but it does not mean that it will not be sealed. If the demon kings encounter powerful archangel enemies, it might not be possible. It’s also going to roll over. The Abyss World once had the Demon King being sealed by a single seal for tens of thousands of years. Therefore, even if it is difficult to see the traces of the activities of a few new Sin Demon Lords in the Abyss World, the demons did not think it was a big deal. After all, they still have to live their respective lives.
 
 When Roy met Rodin in the world of Devil May Cry before, Rodin called himself Mephisto. Since he dared to call himself this way, it means that Rodin is a clone of Mephisto, but this matter is only Roy and Rodin. [3] Roy didn't mention it to Julia and the others afterwards, so when they heard the name suddenly, Julia and Benia seemed so surprised.
 
