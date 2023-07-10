@@ -1,0 +1,228 @@
+{
+  "version": "3.0.3",
+  "created": "2023-07-10T15:07:19Z",
+  "files": [
+    {
+      "path": ".nojekyll"
+    },
+    {
+      "path": "404.html"
+    },
+    {
+      "path": "490-496/490-new-power/index.html"
+    },
+    {
+      "path": "490-496/491-power-contract/index.html"
+    },
+    {
+      "path": "490-496/492-exposed-void/index.html"
+    },
+    {
+      "path": "490-496/493-what-lilith-see-back-then/index.html"
+    },
+    {
+      "path": "490-496/494-where-are-the-nails/index.html"
+    },
+    {
+      "path": "490-496/495-the-simpler-the-scarier/index.html"
+    },
+    {
+      "path": "490-496/496-leave/index.html"
+    },
+    {
+      "path": "490-496/index.html"
+    },
+    {
+      "path": "497-500/497-this-is-a-bit-embrassing/index.html"
+    },
+    {
+      "path": "497-500/498-old-man/index.html"
+    },
+    {
+      "path": "497-500/499-schizophrenic/index.html"
+    },
+    {
+      "path": "497-500/500-truth-and-essence/index.html"
+    },
+    {
+      "path": "497-500/501-mephisto/index.html"
+    },
+    {
+      "path": "497-500/502-my-name/index.html"
+    },
+    {
+      "path": "497-500/index.html"
+    },
+    {
+      "path": "503-519/503-magic-town/index.html"
+    },
+    {
+      "path": "503-519/504-real-sacrifice-ritual/index.html"
+    },
+    {
+      "path": "503-519/505-there-are-eight-of-seven-demons/index.html"
+    },
+    {
+      "path": "503-519/506-soulstone/index.html"
+    },
+    {
+      "path": "503-519/507-new-dlc/index.html"
+    },
+    {
+      "path": "503-519/508-replica/index.html"
+    },
+    {
+      "path": "503-519/509-tyrael-decision/index.html"
+    },
+    {
+      "path": "503-519/510-batle-of-roy-and-tyrael/index.html"
+    },
+    {
+      "path": "503-519/511-this-is-the-real-trap/index.html"
+    },
+    {
+      "path": "503-519/512-double-standard/index.html"
+    },
+    {
+      "path": "503-519/513-variety/index.html"
+    },
+    {
+      "path": "503-519/514-message-from-mephisto/index.html"
+    },
+    {
+      "path": "503-519/515-future-fragments/index.html"
+    },
+    {
+      "path": "503-519/516-the-first-war-between-angle-led-by-roy/index.html"
+    },
+    {
+      "path": "503-519/517-tyreal-freed/index.html"
+    },
+    {
+      "path": "503-519/518-the-archangle-of-courage-is-tired/index.html"
+    },
+    {
+      "path": "503-519/519-prophecy/index.html"
+    },
+    {
+      "path": "503-519/index.html"
+    },
+    {
+      "path": "520-535/520-the-battle-of-authority-and-power/index.html"
+    },
+    {
+      "path": "520-535/521-the-battle-of-authority-and-power/index.html"
+    },
+    {
+      "path": "520-535/522-the-battle-of-authority-and-power/index.html"
+    },
+    {
+      "path": "520-535/523-evolve-again/index.html"
+    },
+    {
+      "path": "520-535/524-devil-poem/index.html"
+    },
+    {
+      "path": "520-535/525-spooky-figure/index.html"
+    },
+    {
+      "path": "520-535/526-roy-true-intetaion/index.html"
+    },
+    {
+      "path": "520-535/527-judment-fall-from-the-sky/index.html"
+    },
+    {
+      "path": "520-535/528-in-front-of-crystal-arch/index.html"
+    },
+    {
+      "path": "520-535/529-three-thugs/index.html"
+    },
+    {
+      "path": "520-535/530-tragoul-appears/index.html"
+    },
+    {
+      "path": "520-535/531-deformed-child/index.html"
+    },
+    {
+      "path": "520-535/532-even-the-titan-are-cunning/index.html"
+    },
+    {
+      "path": "520-535/533-the-finale-of-high-heaven/index.html"
+    },
+    {
+      "path": "520-535/534-imperius-death/index.html"
+    },
+    {
+      "path": "520-535/535-in-the-name-of-despair/index.html"
+    },
+    {
+      "path": "520-535/index.html"
+    },
+    {
+      "path": "536-550/536-lilith-return/index.html"
+    },
+    {
+      "path": "536-550/537-most-elusive-demon-queen/index.html"
+    },
+    {
+      "path": "536-550/538-how-strong-is-lilith/index.html"
+    },
+    {
+      "path": "536-550/539-inarius/index.html"
+    },
+    {
+      "path": "536-550/540-gunpowder-smoke/index.html"
+    },
+    {
+      "path": "536-550/541-army/index.html"
+    },
+    {
+      "path": "536-550/index.html"
+    },
+    {
+      "path": "index.html"
+    },
+    {
+      "path": "resources/css/retype.css"
+    },
+    {
+      "path": "resources/fonts/Inter-italic-latin-var.woff2"
+    },
+    {
+      "path": "resources/fonts/Inter-roman-latin-var.woff2"
+    },
+    {
+      "path": "resources/js/config.js"
+    },
+    {
+      "path": "resources/js/lunr.js"
+    },
+    {
+      "path": "resources/js/retype.js"
+    },
+    {
+      "path": "resources/js/search.json"
+    },
+    {
+      "path": "resources/lunr.js.LICENSE.txt"
+    },
+    {
+      "path": "resources/mermaid.js.LICENSE.txt"
+    },
+    {
+      "path": "resources/prism.js.LICENSE.txt"
+    },
+    {
+      "path": "resources/retype.js.LICENSE.txt"
+    },
+    {
+      "path": "resources/retype.LICENSE.txt"
+    },
+    {
+      "path": "robots.txt"
+    },
+    {
+      "path": "sitemap.xml.gz"
+    }
+  ]
+}
