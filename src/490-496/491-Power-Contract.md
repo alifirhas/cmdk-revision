@@ -54,7 +54,7 @@ Furthermore, they hold the belief that individuals like witches, who have engage
 
 At the moment when the power contract was signed, Roy felt the position of the contractor Bayonetta and the spatial connection with him. In other words, if Roy has studied space power a little deeper, maybe through this contractual connection, he can appear next to Bayonetta. Bypassing the detection of the will of the world and appearing in Bayonetta's world.
 
-This is naturally a loophole in the rules, but unfortunately, Bayonetta knows the existence of such loopholes. As a witch who has signed power contracts with many demons, such loopholes is easy to find out, so Roy's feeling only lasted for a second or two and then disappeared in the next moment. He could no longer accurately perceive the spatial position of Bayonetta!
+This is naturally a loophole in the rules, but unfortunately, Bayonetta knows the existence of such loopholes. As a witch who has signed power contracts with many demons, such loopholes are easy to find out, so Roy's feelings only lasted for a second or two and then disappeared in the next moment. He could no longer accurately perceive the spatial position of Bayonetta!
 
 This may be caused by Bayonetta's use of a secret method unique to the witch...
 
@@ -70,9 +70,9 @@ Only with having authority similar to God, Demon Kings can achieve this feat. Th
 
 Fortunately, Roy did not ignore it, because for him, separating the two fused purgatory spaces again is just one thing that can make him familiar with the power of "authority"...
 
-## Change Notes
+## Notes
 
-[1] Name changes
+### Name changes
 
 - Julie -> Julia
 - Godhead -> Mobius Mark

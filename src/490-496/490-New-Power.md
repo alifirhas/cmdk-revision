@@ -74,7 +74,7 @@ The tremendous force unleashed by Jubileus's fall resulted in a powerful explosi
 
 Divine Spark is a good thing, but this kind of good thing falls into the hands of a demon, that’s another matter. Even if the Four Horsemen of the Apocalypse were summoned by Roy, this doesn’t mean they would like to see Roy. A new Demon King is born.
 
-So when the Four Horsemen of the Apocalypse came to Roy, the first person who spoke is War, with a stinky face he said "Demon, this is the only time and the last time we help you, don't think about using us to deal with your enemy ever again!"
+So when the Four Horsemen of the Apocalypse came to Roy, the first person who spoke is War, with a stinky face he said: "Demon, this is the only time and the last time we help you, don't think about using us to deal with your enemy ever again!"
 
 Roy looked at War, grinned, and said "Don't worry, I also know that you will not do anything for me again. My promise is still valid. Next time you meet, you will face the ‘void’!"
 
@@ -88,9 +88,9 @@ Fortunately, Roy didn't have anything to do with these twin worlds...
 
 ***
 
-## Change Note
+## Notes
 
-[1] Name Changes
+### Name Changes
 
 - Julia -> Junia
 - Benia -> Baina
